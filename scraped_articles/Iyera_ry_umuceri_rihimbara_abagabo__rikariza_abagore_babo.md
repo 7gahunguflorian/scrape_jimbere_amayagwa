@@ -1,0 +1,3 @@
+# Iyera ry’umuceri rihimbara abagabo, rikariza abagore babo
+
+Mu kiyaya c’Imbo, ingo zirubakwa canke zigasambuka bivanye n’igihe umuceri wereyeko. Inkurikizi ntizibuze: abagabo benshi barata ingo, abagore bagasigara bifumbereje, abana bakaba ba nyamwigendako, n’imburano z’urutavanako. Itegeko rishasha na ryo ribwiriza abubakanye batanditswe kwandikwa imbere y’amategeko. Mbega woba ari wo muti canke intango y’ayandi matati?

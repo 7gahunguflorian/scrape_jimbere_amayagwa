@@ -1,0 +1,25 @@
+# Mu kiringo c’imyaka indwi, abarundi bashika 200 baravuwe babazwe imitima barakira
+
+Kw’igenekerezo rya 29 Nyakanga buri mwaka, isi yose irahimbaza umunsi wahariwe umutima. Uwo munsi ushitse havurwa ibice bishika 31% vy’abantu bapfa ku mwaka bahitanwe n’indwara y’umutima kw’isi yose nkuko vyemezwa na OMS. Ku bw’ivyo, ishirahamwe « La Maison Bon Samaritain du Burundi » ryarishiriyeho umugambi ufise ihangiro ryo gufasha kuvuza abagwaye iyo ndwara. Abarwayi bamaze kubitura barenga 1000, ariko muri bo abajanwe kuvuzwa hanze bashika 200 mu kiringo c’imyaka indwi.
+
+«Nagarukiye aho rwotera izuba ariko ndashima kuba nararonse ubufasha. Maze kumenya ko ndwaye indwara y’umutima nabona ko birangiye. Nari nsigaye mbona ko mbayeho niteze gupfa gusa. Mu vy’ukuri vyarangoye kwakira. Jewe navutse nkomeye nkunda gukina agapira no kwiruka, mu mpera z’umwaka wa 2013 ni ho natangura kugira ikibazo co guhema neza, nkakorora eka bitinda birakomera. Narivuje henshi bambwira ko nkomeye nanduruka nja kwipimisha umutima. Hari mu 2015 aho muganga Jolis ambwira ko kabaye, ndwaye umutima. Nahatswe guta ubwenge. Ariko akoranye n’ishirahamwe «  Maison Bon Samaritain du Burundi », baramfashije ndajanwa kuvurwa muri Sudani i Khartoum, mu mpera z’umwaka wa 2016. Narabazwe umutima barasanasana uturingoti dukwiragiza amaraso mu mubiri (valves). Ubu narakize, mbayeho nk’abandi. Nta na kimwe nabujijwe kubw’indwara navuwe». Iyo ni intahe ya Annicet Ndarubonye, aba ku Mutakura.
+
+Nkuko Butoyi Alexis arongoye ishirahamwe « Maison Bon Samaritain du Burundi » abimenyesha, indwara y’umutima bafasha mu buvuzi ziri mu buryo bubiri. Hari iyo umwana avukana (Cardiopathies congénitales), iyi rero ngo umwana avuka umutima wuguruye. Hakaba n’iyindi bita Cardiopathies Rhumatismales iba yatewe na angine itavuwe canke yavuwe nabi, hama igaheza ikonona uturingoti dukwiragiza amaraso mu mubiri, hama bagaheza bakamubaga bagasubiriza utwononekaye canke bakadusanasana.
+
+Butoyi agira ati: « Ico dufasha twebwe, twakira abagwayi abaganga b’umutima baturungikiye, kuko dukorana na bo. Turakira abana baba bavukanye iyo ndwara b’imyaka iri munsi ya 15 bakeneye kubarwa umutima, tugaca tubaronderera ababavura ku buntu mu bihugu vya buraya, nko mu bu Faransa, mu Bubirigi, mu bu Tariyano, tukabaronderera imiryango izobakira, n’abaza ku batora. Abawugwara bakuze na bo bivuye kuri angine itavuwe canke yavuwe ntikire, twakira abari munsi y’imyaka 50, n’abo turabaronderera ababavura ku buntu, abo na bo bavurirwa mu gihugu ca Sudani i Khartoum».
+
+Igitigiri c’abamaze kwakirwa
+
+Alexis amenyesha ko ico gikorwa bagitanguye mu mwaka wa 2012. Muri iyi myaka yababa 7 bakora, bamaze kwakira abagwayi barenga igihumbi, muri bo abashika 200 ni bo bamaze kuvugwa babazwe umutima kandi barakira neza. Akavuga ko abamaze gufashwa ari bake kuko ngo benshi ari abapfa kubera bataba baronse uburyo bwo kuja kwivuza hanze. Agira ati: « Ku mwaka turakira abashika 100, nk’akarorero mu mwaka uheze twarakiriye 120 tukaba twashoboye kuvuza abashika 30, dufasha abari hagati ya 30 na 40 ku mwaka».
+
+Nkuko Butoyi abivuga, abagwayi babakorera ibikenewe vyose : kubaronderera ababafasha ku buntu, kuronka amatike y’indege n’ibindi. N’iyo bamaze gushika iyo bavurirwa, ngo baguma babakurikirana. Ariko muri ico gikorwa ngo hari benshi babemerera kuvura ku buntu abo borungika hanze, mugabo iyo baba bariko bararondera uburyo bwo kujanwa, amahera arabura, ugasanga umurwayi yaremerewe kuvurwa ariko bikanka ko ajayo akandukiramwo gupfa kubw’ubukene. Kuko buri mu gwayi basanga bakeneye amafaranga ari hagati y’imiriyoni 3 na 4. Igice kinini kikaba ari ico kumurihira itike y’indege.
+
+Hokorwa iki ?
+
+Ku bwa Butoyi, uburyo bwo kwirinda iyo ndwara ni ukugira isuku, umuntu akivuza hakiri kare, kuko cane cane iyo cardiopathie iterwa na angine. Bishitse umuntu agasanga arayirwaye akaja kumiti bisabwa ko ayimara kuko iyo abazwe agahindurirwa uturingoti (valves) aca aja ku miti ubuzima bwiwe bwose.
+
+Kubera ko iyo ndwara isa n’iyititaweho gose mu gihugu, ubushikiranganji bw’amagara y’abantu bwari bukwiye kugira igisata kiyiraba bagafashanya n’ishirahamwe ‘Bon Samaritain’ hamwe n’abaganga bavura umutima, kugira barabe ingene abahitanwa n’iyo ndwara bogabanuka. Muri ico gihe, boheza bakanarabira hamwe ivyokorwa kuko ngo benshi baza bamaze gusinzikara biturutse ku bukene bw’abahinga mu gihugu naho nyene abenshi bibereye i Bujumbura kiretse uwuri i Karusi, n’i Ngozi. Ivyo rero bigatuma abantu benshi batamenya ivyo barwaye kubera ko ata baganga bashobora kwemeza iyo ndwara bari ku mavuriro menshi.
+
+Twibutse yuko mu kiganiro catanzwe n’abaganga bavura indwara z’umutima mu Burundi kuri uwu wa 20 Nyakanga, Dr Constantin Nyamuzangura yagarutse kuri zimwe mu ntambamyi bahura nazo:
+– Abaganga bavura umutima ni 12 gusa mu Burundi, ibice 80 bakorera i Bujumbura, abandi bari i Ngozi n’i Karusi.
+– Haracari ingorane y’imiti myiza idahari, ibipimo bimwebimwe vyo mu maraso bitegerezwa gukorwa, ariko bitaboneka kubera bizimvye, ikibazo c’ubushakashatsi hamwe n’ic’ugutanga ibiharuro vy’abagwayi n’abo zihitana ku rugero rw’igihugu cose (recensement)

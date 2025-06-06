@@ -1,0 +1,20 @@
+# Hasigaye amezi 4 utumwanya twose dusubirizwe n’ibitekezo bidatitura isi: ntibizokworoha
+
+Amezi 4 niyo asigaye ku kiringo catanzwe na Reta y’Uburundi ngo ntihagire akamwanya kazoba kacibonekeza mu gihugu. Ni mu gihe amashirahamwe akora ibitekezo bidatitura isi akiri make ku buryo ivyo bahingura bitokwira ibice 90% vy’abanyagihugu bahora bakoresha utumwanya nk’uko Hugues Nimpagaritse, umukuru wa rimwe mu mashirahamwe abikora abimenyesha yisunze ivyigwa vyakozwe mu gisagara ca Bujumbura. Naho biri ukwo, avuga ko hamwe ababihingura boshigikirwa vuba, ivyo bitekezo bitobura kuboneka, abadandaza n’abasumyi bakoroherwa.
+
+Impungenge ni nyinshi ku badandaza ndetse n’abasumyi kubw’ingingo iri mw’itegeko ry’Umukuru w’igihugu yimirije kuzoshirwa mu ngiro mu mezi 4 ari imbere, ivuga ko ata kamwanya na kamwe kazoba kacibonekeza mu gihugu. Bakibaza nimba hazoba hamaze kuboneka ibitekezo bisubirira utwo tumwanya ku rugero twahorako n’ibiciro bitavunanye.
+
+Uciye kw’isoko yo kuri Cotebu, ndetse no kwa Siyoni, usanga  utumwanya turi ku biciro twahozeko. Hari utw’amafaranga 50, 100,  200 na 500. Hari n’ibitekezo bifise imigozi wogira ko bikozwe mu mpuzu, kimwe kikagwa hagati y’1000 na 5000. Prosper Ndikumana, umudandaza akorera kw’isoko ya Cotebu. Agira ati: « Twarasiguriwe ingaruka y’utumwanya kw’isi ndimwa ndetse no ku magara yacu, turabitahura. Ariko rero mfise amakenga ko ikiringo catanzwe n’umukuru w’igihugu kizohava gishika ata bitekezo bikwiye dufise  kuko  ata mashirahamwe abikora agwiriye mu gihugu ariho, n’ayahari arabizimbako ».
+
+Pascal Karikurubu adandariza kwa Siyoni, we yibaza nimba amashirahamwe ahari akora ibitekezo afise vyangombwa bikwiye ku buryo azoshobora gukora ibingana n‘ibikenewe mu gihugu kuva ku bitekera irobo gushika ku biro 5 nk’uko vyahora biri ku tumwanya. Agira ati: « Ko hafashwe ingingo ibuza kwinjiza utumwanya mu gihugu birakwiye ko herekanwa igikorwa kiboneka kiriko kirashirwa mu ngiro ntituzohave dusanga tuburiye icarimwe utwo tumwanya n’ivyo bindi bitekezo kuko ibihari ubibajije ngo ubirangure barabizimbako, ntitworonka abakiriya babigura ».
+
+Nayo Adelphine Iratabara, umusumyi twahuye kuri Cotebu, agira ati:« Asangwa agatekezo k’ibiro 5 kazohora kagurwa kuva ku mafaranga 1000 kuduga uko ndiko ndabibona, aho buca utumwanya tuviraho ntibizoroha. Vyari bikwiye ko hagira igikorwa kugira ngo ibitekezo bigwizwe gutyo binagurwe ayaciriritse ahandi ho bamwe ntituzobihamvya ».
+
+Amashirahamwe ahari afise ubushobozi bungana gute?
+
+Hugues Nimpagaritse aserukira ishirahamwe riharanira gukingira ibidukikije APBEE (Association pour le Bien-Etre de l’Environnement) avuga ko batanguye ibikorwa vyo guhingura ibitekezo bibora inyuma yo kubona ko isi ndimwa ishobora gutiturwa n’utumwanya, ndetse n’amagara y’abantu akahasinzikarira.
+Nk’uko abandanya abimenyesha, iryo shirahamwe rikora ibitekezo kandi ryama ryabikwiragije mu tuguriro igihe cose bikenewe. Nayo ku vyerekeye ibiciro avuga ko naho hari abavuga ko bizimvye atariko biri kuko ikigurwa amafaranga 3 000 gikoreshwa amezi arenga 6 kandi kikaba gitekera nk’ibiro 7 kuduga mu gihe igitekera irobo canke ikiro kigurwa hagati y’amafaranga 50 na 100.
+
+Naho biri uko Hugues aremera ko badafashwe mu mugongo bitokunda ko bakora ibitekezo vyokwiragira mu Burundi bwose muri iki kiringo c’amezi 4 gisigaye. Jérémie Nkinahatemba, umuyobozi mukuru mu bushikiranganji bw’ibidukikije, agahumuriza abadandaza n’abasumyi ko batazobura ibitekezo uko vyogenda kwose kuko ngo hariko harigwa ukuntu amashirahamwe abikora yoshigikirwa, agakura mbere agakora vyinshi. Akagira ati: « Nimba harafashwe ingingo ibuza kwinjiza utumwanya mu gihugu, n’ibikorwa biyiherekeza vyo kudusubiriza ntivyibagiwe ».
+
+Umuyobozi w’ibiro bijejwe gutororokanya ibiharuro muri ubwo bushikiranganji akaba atashoboye kuboneka ngo hamenyekane ibitigiri vy’amashirahamwe yiteguriye gukora ibitekezo ariko umwe mu banyamabanga bakorera muri ivyo biro akamenyesha ko ivyigwa bigikorwa.

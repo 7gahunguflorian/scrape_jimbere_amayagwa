@@ -1,0 +1,8 @@
+# Isabukuru y’imyaka 111, umwami Mwezi Gisabo atanze
+
+Hari kuwa gatanu, igenekerezo rya 21 myandagaro mu mwaka w’1908 aho uwo mwami Mwezi Gisabo yatanga, inyuma y’imyaka 56 aganza Uburundi. Mu gihe bamwe mu bashakashatsi bemeza ko yoba yahitanwe n’ibinyoro, abandi bagira bati yahitanwe n’ingwara ya marariya yoba yanduriye mu kiyaya ca Rusizi aganutse avuye kugendera abadagi. Aho rero hari n’abavuga ko yoba yazize umuziro wavuga ko kizira ko umwami abona ikiyaga Tanganyika.
+
+Ingoma y’umwami Mwezi yaranzwe n’amahano ndetse n’ibitero bidasanzwe vyagizwe n’abanyamanga eka n’abarundi nyene. Naho vyari uko, uwo mwami yahagaze rugabo ku bw’ubwenge, ubutwari n’ubukerebutsi bwiwe. Ntivyari vyoroshe na gato, ariko yarakoze ibishoboka vyose ku buryo abera ifuro ry’igiti Abadagi mu ntambara, gushika aho nabo bemeza ko ari « inseruka rukamvye ».
+
+Bike mu bibazo yahuye na vyo: igumuka rya Twarereye yavuga ko yibwe ingoma mu gihe yari yayirazwe na se, Ntare; intambara y’Abatare n’Abezi; umugumuko w’uwo bita Rwerekanabirenge mu buraruko bushira uburengero bw’intara ya Kayanza, igitero cagizwe na Biroro mu kiyaya c’Imbo, Rwoga mu bumanuko, Kibango mu buraruko, ndetse n’abagumutsi bakivugangwa na bugingo n’ubu nka Maconco na Kirima.
+Uwo mwami ntiyorohewe na mba: hejuru y’ubugumutsi n’intambara zadutse ku ngoma yiwe, harateye ivyago n’ibiza sindamusiga, nk’ikigoyi cateye mu 1880, inzige, ibiza vyamaze abantu, amasho n’ibindi kuva mu mwaka w’1890 gushika mu 1892.
