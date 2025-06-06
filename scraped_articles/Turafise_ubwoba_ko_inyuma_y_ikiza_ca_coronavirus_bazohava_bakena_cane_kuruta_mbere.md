@@ -1,0 +1,20 @@
+# « Turafise ubwoba ko inyuma y’ikiza ca coronavirus bazohava bakena cane kuruta mbere »
+
+Kubero ico kiza, ibihugu bigize akarere ka Afirika y’ubuseruka vyarasohoye itangazo kuwa 25 Ntwarante 2020 rimenyesha ingingo zidasanzwe zafashwe, nk’ukuba haragabanywa uruja n’uruza ku mbibe z’ivyo bihugu ariko ibidandazwa vyo bikabandanya bihererekanwa eka n’ayandi mabanga akarangurwa. Aka gahengwe ntikahawe abakora urudandaza njabukambibe rutoruto …
+
+Nk’uko vyerekanwa n’ibanki nkuru y’igihugu c’Uburundi (BRB) igiciro c’ivyinjiye n’ivyasohotse biciye mu rudandaza njabukambibe rutoruto cagera imiriyaridi 92 zirenga z’amarundi mu mwaka wa 2018.
+Uno munsi ku mipaka, abatwara imiduga mininiminini ihetse ibidandazwa hamwe n’ababafasha (convoyeurs) ni bo bonyene bemererwa kubandanya urugendo mu gihe ahanini uburyo bwo kwunguruza ibidandazwa bwari bumenyerewe gukoreshwa n’abakora urudandaza njabukambibe rutoruto bwari amapikipiki (ibice 51% vy’ibidandazwa bijabukanwa) hamwe n’umutwe (ibice 48% vy’ivyinjizwa mu Burundi).
+
+Bienvenu Hicuburundi aserukira umugambi wiswe « Mpaka, shamba letu» mw’ishirahamwe Afrabu, rihurikiyemwo abakenyezi barenga 100 bakora urudandaza njabukambibe rutoruto, mu Gatumba, arigana ibibazo bafise abo bakenyezi kuva aho imbibe zugariwe : « Imbere ya vyose, birakwiye ko haba ugutahura kuko urwo rudandaza rutandukanye n’urumenyerewe. Ni urudandaza usanga rukorwa n’abantu bafise uburyo buke kandi babeshejweho n’ako kazi nyene. Aba, birigwa biruka barondera icorirenza. Abakenyezi bakora urwo rudandaza, kenshi bashora ivyamwa n’ubundi bwoko bw’ifungurwa. Ugiye kuraba usanga umutahe wabo udashika ibihumbi 100 vy’amarundi, ku munsi bakunguka hagati y’amafaranga 5.000 na 10.000. Bisigura ko ata n’aho bokura uburyo bwo kwunguruza ibintu mu miduga nk’uko abandi babikora ».
+
+« Gutakaza ako kazi bisa n’ugutakaza icobahesheje agateka n’ijambo »
+
+Udufaranga twava muri urwo rudandaza twafasha eka mbere tukanabubahisha mu kibano : « Kubw’utwo dufaranga, abakenyezi barasahiriza muri vyankenerwa vyo mu rugo ku rugero rumwe n’abafasha babo. Hari n’abo usanga ari abapfakazi. Aba, baraheza bakibeshaho, bakiyungunganya uko bashoboye, bakigisha abana, bakabavuza eka bakisuganya muri twinshi. None ko muri ino minsi bariko barikora kuri ka gatahe bahora bavyaza umusaruro barondera kwibeshaho (kukaba nkako nta kundi bari bubikike), aho buca baburira ikibinjiriza n’udufaranga na duke, ca kibano cahora kibubaha kizosubira kubabona nk’abafise ijambo. »
+
+Bigize n’ikirikora, imvura idasanzwe yaguye ku wa 19 Ndamukiza 2020 yatumye inkombe z’uruzi Rusizi zirengerwa maze rwiyarira mu mazu y’abantu. Icegeranyo cakozwe cerekanye ko amazu ashika 7.000 yamizwe n’amazi, himuka abantu hafi 40.000 kandi bamwe muri ba bakenyezi bakora urudandaza njabukambibe bari baraharimiye, vyose bitwarwa n’indirima.
+
+Mu ntara ya Makamba na ho nyene hari ahakorerwa cane urudandaza njabukambibe aho ibidandazwa vyinjira ku bice 37,2%, bamwe mu badandariza kw’isoko baramenyesha ko bari mu ruhombo rudasanzwe. Juma, yibuka n’akababaro ingene urudandaza rwari rwifashe : « Imbere y’ikiza Coronavirus, twakora neza. Jewe nakunda kurangura ibirato vy’abagabo. Kenshi nadandariza mu nzira ivyo naranguye, mu nzira nkumva terefone zikurakuranwa bambaza aho ngeze ngo banshorere ». Ubu icipfuzo ciwe, ata nkeka gisanfiwe n’bandi badadanza, akaba aruko ico kiza corangira : « Uno munsi ho dusa n’abirigwa biyicariye kw’irigara nyene, ataco umuntu akora ntakundi. Ese icoduha imipaka igasubira ikugururwa ».
+
+Twobibutsa ko mu masoko yo mu bihugu vya Kongo na Tanzaniya ari ho hasohorerwa cane ibidandazwa (56%) hakaba kandi ari na ho ibitari bike birankurirwa (43%). Ikindi na co n-uko mu gihe mu bihugu bitari bike vyo muri Afirika usanga urudandaza rutoruto rukorwa n’abakenyezi, mu Burundi ho abantu 8 kuri 10 bakora umwuga w’ubudandaji ari abagabo.
+
+Mu ntumbero yo gushira mu ngiro umugambi Tuyage ufashwe mu mugongo na USAID, ikinyamakuru Jimbere cifadikanije n’ishirahamwe Search For Common Ground Burundi mu gikorwa co kwandika inkuru zijanye n’ivy’ubutunzi mu gihugu.

@@ -1,0 +1,15 @@
+# Mu Burundi, imyiteguro yo kugwanya umugera wa Ebola irabandanya
+
+Mu rugamba rwo kugwanya umugera w’indwara ya Ebola mu Burundi, harateguwe abaganga bashizwe mu bibanza 21 biri ku mbibe zegeranye n’ibihugu bibanyi, harashirwa ho ivyuma vyo gupima ibimenyetso biyiranga, harubakwa n’ikigo gishasha ku Mudubugu ku buhinga busabwa na OMS, n’ibindi vyinshi nkuko bishikirizwa na muganga Girukwishaka Jean Bosco, umuvugizi w’ubushikiranganji bw’amagara y’abantu.
+
+Muganga Jean Bosco avuga ko mu vy’ukuri imyiteguro yo kugwanya Ebola ibandanya kandi ubushikiranganji n’abo bafashanya babishize mwo inguvu nyinshi kugira bashobore gukinga iyo ndwara itaribonekeza mu Burundi. Muri ivyo rero, amenyesha ko hatunganijwe neza ibibanza 21 biri ku mbibe z’intara zihereranye n’ibihugu bibanyi ari vyo Congo, Rwanda na Tanzaniya. Aho rero hakaba harashizwe abaganga babiherewe inyigisho, ibikoresho bikenewe bibafasha gupima ibijanye n’uwo mugera nka Thélémoscan, Thélémoflash, n’ibindi. Avuga kandi ko muri ivyo bibanza hanashizwe ho amazi meza n’utuzu twa surwumwe.
+
+Iruhande y’ivyo Muganga Girukwishaka J.Bosco amenyesha ko bashize ku bitaro 21 vy’uburere vy’ubuvuzi (Hopitaux de District) babonye ko bushobora kugeramirwa  ubwa mbere ibibanza vyo kwakirira mwo uwofatwa n’iyo ndwara mu kurindira ko atwarwa mu kigo ca bigenewe cubatswe ku Mudubugu i Bubanza gikwije ibintu vyose OMS isaba. Rero ngo no muri ubwo burere bw’ubuvuzi hariho abaganga bakurikiranye inyigisho bama biteguriye ico gikorwa, ibikoresho vyose bikenewe hamwe n’imigwi ibikurikirana ku munsi ku munsi yashinzwe ku ntara ku ntara co kimwe n’umugwi ubikurikirana ku rwego rw’igihugu urongowe n’umushikiranganji w’amagara y’abantu.
+
+N’inyigisho mu barundi ziratangwa
+
+Mu gukinga uwo mugera wa Ebola ntivyagarukiye ku gutunganya ibibanza no kwigisha abaganga gusa, haratanzwe n’inyigisho mu bantu batandukanye bo mu buzima bw’igihugu kugira ngo bose bashobore kumenya ibijanye n’iyo ndwara. Uwo muvugizi akavuga ko ari na co gituma mu bibanza bihurirwa mwo n’abantu benshi bashize ho indobo zirimwo amazi arimwo imiti kugira umuntu wese ahaciye abanze gukaraba iminwe. Agira ati: « Ivyo vyo gukaraba iminwe ni umugenzo mu shasha waje bivuye ahanini kuri uwo mugera w’indwara ya Ebola, kandi twipfuza ko wokwamaho kuko biri no mu mabwirizwa y’isuku ».
+
+Muganga Girukwishaka Jean Bosco abandanya avuga ko hariho n’inyigisho zo guhimiriza n’abanyagihugu zabaye, kandi ko hari n’izindi ziriko ziraba mu ntara 10 z’uBurundi arizo : Cibitoke, Bubanza, Bujumbura, Bujumbura Mairie, Rumonge, Makamba, Kayanza, Ngozi, Kirundo na Muyinga. Aho hose bakaba bahimirizwa kwijukira kugwanya uwo mugera wa Ebola.
+
+Mu mugambi wo gukinga no kurwanya iyo ngwara, uwo muvugizi avuga ko ibitari bike bimaze gukorwa, ariko akanamenyesha ko hari n’ibindi bitaratungana neza, nka laboratoire mobile iyo na yo ikaba ari imodoka irimwo ibikoresho vyose bikoreshwa mu gupima yoza irazunguruka  aho hose hakenewe ibipimo, ariko akanizeza ko n’iyo modoka iri mugushika, kuko muri uwo mugambi bariko barakorana n’ibanki y’isi, OMS, Unicef, OIM na PAM.

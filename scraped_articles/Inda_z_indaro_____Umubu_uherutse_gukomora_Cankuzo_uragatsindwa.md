@@ -1,0 +1,21 @@
+# Inda z’indaro : « Umubu uherutse gukomora Cankuzo uragatsindwa »
+
+Mu rukurikirane rw’isekeza ryo kurandurana n’imizi inda z’indaro mu mashure, ku civugo « Ikibanza c’umwigeme ntikiri mw’iyakiriro ry’abavyeyi kiri kw’ishure », ishirahamwe Cordaid mu mugambi waryo Menyumenyeshe, ryari ryatunganije ibikorwa vy’ihimiriza, n’ukwerekana ivyo uwo mugambi waranguye mu myaka yababa itanu, muri Cankuzo, ku wa 13 Munyonyo 2020.
+
+Ivyo bikorwa vyatunganirijwe kuri Lycée communal Cankuzo. Hari nk’isaha zitandatu aho vyatangura. Akavura karatonyanga ariko ntikahagaritse ibikorwa. Abanyeshure baserukira abandi mu makomine agize intara ya Cankuzo bari bikazanuye n’ivyese n’indirimbo biteguriye guhanura urwaruka rugenzi rwarwo eka n’abari bakoranye aho hantu muri rusangi.
+
+Umwigeme w’ubwenge ni nde …
+
+Mw’ijambo ryashikirijwe na Benjamin Nduwumuremyi, Umukenguzabikorwa mu mugambi Menyumenyeshe muri Cordaid, yagize ati : « Umwigeme w’incabwenge yifatira ingingo zibereye ku bijanye n’amagara yiwe, ntahendwa n’ibisamaza bimukwegera mu buhumbu, arasaba insiguro ku vyerekeye irondoka rijanye n’amagara meza, ku mavuriro, ibigo bigenzi vy’urwaruka, abunganirarunganwe baronse inyigisho zikwiye. Uwo mwigeme yima amatwi amajambo y’ubupfu n’ibihendamaso akijukira ishure eka agakora n’ibikorwa vyo kwiteza imbere.»
+
+Mu vyese n’indirimbo zaririmbwa n’abanyeshure barezwe n’umugambi Menyumenyeshe, hari huzuyemwo impanuro zitari nke: Nkuko abashikanira abigeme ibisayangana bakaka, ariko rero umwigeme akwiye kumera magabo igihe cose kuko si bose baba bamwipfuriza ineza. Muri ivyo vyese nyene, uko vyagiye birakuranwa vyerekana neza ukuntu abana b’abigeme ahanini batabwa mu nyenga n’akamanyu k’umutsima bahahamukiye. Bitangurira mu tujambo dusosa, bikarangira ari umurazi, aho umwigeme yihakanwa riva, akaba aho kwicurikira, akicuza ndetse akikorera amaboko mbere bamwe bakarengerwa n’ukwiyahura bakiyahura.
+
+Ibitigiri vy’inda z’indaro mu mashuri …
+
+Inyuma yo gukurikirana inyigisho n’ubutumwa bwashikirijwe mu vyese vyagiye birakuranwa, Léonidas Tangira, Umuyobozi w’indero mu ntara ya Cankuzo yagize ati : « Birahimbaye ko dufise umutahe ungana uku mu rwaruka. Ese rwokwiragiza ubu butumwa rukabushikana kure, inda z’indaro zikaba umugani mu ntara y’indero ya Cankuzo ndetse no mu Burundi bwose.» Aremeza ko ibitigiri vyagabanutse. Ariko rero uwo muyobozi, yisunze ibitigiri vy’abigeme batwaye inda z’indaro mu mwaka wa 2019-2020, amenyesha ko ibitigiri vyasubiye kuduga. « Mu mwaka w’ishure wa 2016-2017 hatwaye inda abanyeshure 69, 2017-2018 bangana 27, 2018-2019 bari 19, mu wa 2019-2020 ibitigiri birasubira biraduga bishika ku nda 35. Rero umubu uherutse gukomora intara y’indero ya Cankuzo uragatsindwa. » Biragaragara ko biriko biganuka ku dufatiye aho vyari biri naho ako kaciyemwo. Arabahimiriza kubandanya barikanuye bime amatwi abo bose babakwegera mu buhumbu ashimira uwo mugambi n’abawufashe mu mugongo.
+
+Inyigisho zerekeye ingendo rusangi y’ishure zabaye inkoramutima …
+
+Umuyobozi w’ishure ryisumbuye rya komine Cankuzo amenyesha ko inyigisho zerekeye ingendo rusangi y’ishure (Approche Globale de l’Ecole) baronkejwe zatumye ubuzima bw’ishure buhinduka. Bimwe mu vyo ashikiriza ko baranguye akabuwe n’izo nyigisho : kurimbura ingene ishure ryitunganije mu bisata bitandukanye, gushira mu kirangaminsi c’ishure umwanya uhariwe inyigisho zerekeye irondoka rijanye n’amagara meza ; guha abanyeshure uburenganzirabwo kwitura amavuriro magenzi y’urwaruka ; gutunganya inama z’abavyeyi barereye abana babo kw’ishure ryisumbuye rya Cankuzo mu ntumbero yo kubibutsa uruhara rwabo mu ndero y’abana ; kwerekana neza imbibe zishure ; kwimura ibarabara ryahora risamaza abanyeshure kuko imiduga yaca hagati mu kibuga ; gutera ivyamwa mu mirima y’ishure ; guca imiserege itwara amazi ntatembere k’ubirasi vy’ishure ; gutera ivyatsi bikingira isi …
+
+Tubamenyeshe ko mu ntara ya Cankuzo abanyeshure bangana 11.474 ari bo baronkejwe inyigisho mu mugambi Menyumenyeshe, mu myaka hafi itanu iheze nayo ku rwego rw’intara 8 Cordaid ikoreramwo uwo mugambi bakaba bagera 103.522.

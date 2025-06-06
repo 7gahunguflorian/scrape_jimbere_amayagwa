@@ -1,0 +1,13 @@
+# Mu ntara kama y’Imbo, intambo y’ikidagagizo irabica bigacika
+
+Mu gihe abantu benshi bamenyerereye kuraba intambo zitandukanye nk’amayaya, intore, urwendengwe, agasimbo … ugasanga baryohewe cane umunezero n’agatwengo bikabegura maze amaso akaguma ku bariko barabaryohereza ibirori, intambo y’ikidagagizo kuva igitangura gushika ihere abantu baba bajumarariwe umutima uri mu kubavamwo. Uti none iyo na yo itambwa gute? Isomere
+
+Iyo uriko urarorera intambo y’ikidagagizo, iheze, ukabona nta muntu akorotse, uraheza ukiruhutsa. Uburyohe bwayo ubwinovora ubonye iheze. Astère Ndihokubwayo arongoye umugwi w’intambo ndanga karanga «Intatana », aratwiganira ibijanye n’iyo ntambo: «Intambo y’ikidagagizo imenyerewe cane mu ntara kama y’Imbo (intara ya Bujumbura). Itambwa n’abagabo canecane abakiri bato bakayitamba bahagaze ku biti bibiri hejuru. Ivyo biti bibiri baba bahagazeko ni vyo bita ibidagagizo. Mu kuyitamba, bigana umwana akimenya gutambuka kurya agenda aradagadaga canke adagagiza. Baraheza bakaja bashingura bongera bashinga ibiti bahagazeko bamera nk’abatambuka impande zose badagadaga. Iyo ntambo abantu bayibonye barayitangarira cane kubera ubuhinga bwo kuyitamba butumvikana cane. Uguma ubona umengo uwuriko arayitamba agira akoroke».
+
+Astère avuga ko iyo ntambo akenshi ata vyinshi isigura mu bijanye n’imico n’akaranga kiretse ko bayitamba kugira binezereze bongere banezereze ababa bariko barabarorera. Ariko kubera ko iyo ntambo iherekezwa n’amashi, akagoma n’indirimbo, uyo arongoye « Intatana » avuga ko ubutumwa baba bashaka gushikiriza baca babucisha mu ndirimbo abantu bahakoraniye bariko bararorera iyo ntambo bakumviraho. Rero iyo ntambo ngo nta mukobwa canke umugore ayitamba kubera ko isaba inguvu nyinshi no kurinda kandi ikaba igoye kuburyo ushobora gutemba ukavunika.
+
+Iyo ntambo yoba yavumbuwe gute kandi itambwa ryari?
+
+Ndihokubwayo afatiye ku matohoza yakoze, avuga ko iyo ntambo atari iya kera cane. Yibaza ko abayitanguje biganye abakinyi b’udukino two gusamaza abantu (cirques) twazanywe n’abanyamahanga (atari ababirigi ni abadagi). Agira ati: « Mu bisanzwe abarundi biganye vya bintu vyo mu ma’’cirques’’ y’abazungu baca batora kugendera ku biti».
+
+Iyo ntambo rero, co kimwe n’izindi ntambo, Astère avuga ko itambwa cane cane mu mahiganwa ndanga muco. Ivyo bikunda kuba mu gihe basavye ko intara yose yo mu Burundi izana ivyayo. Ikidagagizo gica giseruka mu ntara kama y’Imbo (canecane mu ntara ya Bujumbura). Ariko ngo n’ubwo yibonekeza muri iyo ntara, mu rwaruka ntimenyerewe cane kiretse mu migwi y’intambo ndanga karanga nka Club «Intatana» yiyemeje gucukumbura intambo iyo ziva zikagera kugira izigarukane zitambwe mu birori mu ntumbero yuko zitokwibagiranwa.

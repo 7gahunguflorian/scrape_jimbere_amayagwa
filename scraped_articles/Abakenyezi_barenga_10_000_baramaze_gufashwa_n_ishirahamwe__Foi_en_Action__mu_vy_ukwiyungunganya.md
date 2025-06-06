@@ -1,0 +1,15 @@
+# Abakenyezi barenga 10.000 baramaze gufashwa n’ishirahamwe «Foi en Action» mu vy’ukwiyungunganya
+
+Imigambi mitomito ishika 8.283 ni yo abakenyezi barenga 10.000 bamaze kwitunganiriza babifashijwemwo n’ishirahamwe Foi en Action (F.A) mu ntumbero yokurondera kwiteza imbere mu vy’ubutunzi mu ngo no mu kibano, nk’uko bishikirizwa na Niyizigama Virginie arongoye iryo shirahamwe.
+
+Ku civugo kigira giti: «Akarusho kari mu gutsimbataza ikibano, ubutunzi, ingo n’imiryango mu guteza imbere agateka k’umukenyezi», ishirahamwe Foi en Action risanzwe rifasha ingo n’imiryango kwiteza imbere mu butunzi no mu mibano myiza,  ryatunganije kuri uwu wa 10 ntwarante ikiganiro co guhanahana ivyiyumviro. Umukenyezi yari aho wese yasabwa gutereza amaso inyuma akiyumvira iyo yavuye gutyo akaboneraho akaryo ko kugaragaza umunezero w’iterambere amaze gushikako ku bw’iryo shirahamwe. Ivyo vyose bikaba vyabaye mu ntumbero yo guhimbaza umunsi mpuzamakungu wahariwe agateka k’abakenyezi.
+
+Niyizigama Virginie avuga ko kugira umukenyezi agire agateka n’ijambo mu rugo, mu kibano no mu gihugu ari uko aba afise ikintu yiratira mu bijanye n’ubutunzi kandi akagira n’imico myiza. Ni na yo mpamvu iryo shirahamwe ryafashe ihangiro ryo guteza imbere umukenyezi ntahonikora mu kumuhimiriza kwijukira imigambi imuteza imbere kuko biboneka neza ko iyo arinze atera imbere aca ateza imbere umwana n’umugabo wiwe gutyo urugo rwose rugasangwa iteka n’ikibano kidasigaye inyuma. Rero, biciye muri uwo mugambi abakenyezi barenga 10.000 bo mu ntara zitanu ari zo : Bujumbura Mairie, Bujumbura, Bubanza, Ruyigi na Rutana baramaze kwigishwa uburyo bwo kwiteza imbere aho mbere bamaze no kwikorera imigambi mitomito ishika 8283.
+
+Abahawe inyigisho na F.A barakenguruka
+
+Vumilia Barbine umukenyezi umwe wo mu ntara ya Bujumbura yiyemerera ko iyo hataba ishirahamwe F.A aba yarataye akomoka. Uyu avuga ko yari abayeho nabi kubera ko ata kintu na kimwe yari afise yokwiratira. Ariko ubu agira ati :« Ubu ndizigiwe mu rugo kuva aho nigiye kwironderera ibiteza imbere urugo. Burya ugusuzugurika nasanze kuri mu mutwe. Jewe nibaza ko ivy’umugore atunga vyose abihabwa n’umugabo. Ariko nasanze atari vyo. Jewe ubu mfise ingurube 2 mbere umugabo wanje asigaye ansaba ngo duteranye tugure inka. Ivyo vyose vyavuye ku mafaranga y’amarundi 5000 natanguje mu kudandaza ibitumbura ».
+
+Nawe Niyokindi wo mu Rukaramu avuga ko asigaye abanye neza n’umugabo wiwe kubera inyigisho yahawe zo kwicisha bugufi no kwitegurira imigambi. Uyu ashinga intahe avuga ko bitari vyifashe neza mu rugo. Ni ko gutangura gushira mu ngiro ivyo yigishwa mw’ishirahamwe maze aca atangurira ku kudandaza itomate ku kameza. Ariko ubu iyo abwira abandi ko yateye imbere arishigikira kuko yemeza ko yahavuye yiyugururiza ibutike yiwe.
+
+Niyizigama asaba rero abakenyezi ko ugutera imbere kwabo kutotuma bahindura imico myiza, ahubwo ko boguma bazirikana ibanga ry’ubukenyezi bafise ryo kwubaka ingo zabo kugira babere igitsibo abagabo babo aho kubasuzugurisha ivyo bamaze kwishikanako.

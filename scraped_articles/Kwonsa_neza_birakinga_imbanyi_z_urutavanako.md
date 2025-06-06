@@ -1,0 +1,15 @@
+# « Kwonsa neza birakinga imbanyi z’urutavanako »
+
+Iyo abagore baheruka kwibaruka bahanurwa guca baza baronsa abana babo neza kandi ku gihe umwana ashakiyeko ibere kuko biri mu buryo bukinga imbanyi zikunda kwibonekeza ku bavyeyi batari bake bibungenga bakiva mu kiriri. Ivyo bishikirizwa na muganga Gilbert Nibitanga umuhinga mu bijanye n’irondoka (gynécologue).
+
+Hari abavyeyi batari bake na canecane ab’usanga bafise ubuzi barangurira kure y’aho basanzwe baba canke abatinya kwonsa ku gutinya ko amabere yabo yogwa bitabashobokera ko bama bariko baronsa abana babo neza kandi ku gihe. Muri ico gihe hari abagore bahitamwo kwikama amaberebere, abandi bakagura amata y’inka bakayashira mu ma « bibérons», akaba ari yo basigira abakozi bo mu nzu (abayaya) kugira baze kuyaha umwana mu gihe bibonetse ko ashaka kwonka.
+
+Patricia wo mu ntara ya Bubanza asanzwe akorera akazi kiwe mu gisagara ca Bujumbura. Mu myaka ine amaze yubatse ubu ni umuvyeyi w’abana batatu. Ku bijanye no kwonsa neza umwana avuga ko bitamushobokera bivanye n’akazi akorera kure y’urugo rwiwe. Uwo muvyeyi agira ati : « Jewe umwana ndamwonsa mu gatondo ka kare no mw’ijoro gusa. Ku mutaga nca mpitamwo kwikama amaberebere canke nkasigira amata umukozi aza guha umwana ». Uyo muvyeyi nyene anavuga ko atari we gusa hari n’umukenyezi bakorana ku kazi wewe atigera yonsa na rimwe ahubwo umwana anywa amata kubera ngo yanka ko amabere yiwe agwa.
+
+Muganga Gilbert Nibitanga, umuhinga mu bijanye n’irondoka, avuga ko ukutonsa neza umwana usivye ko atari vyiza ku mwana bituma n’abakenyezi bama batwaye imbanyi z’urutavanako. Uyo muganga agira ati: « Burya rero hari abibaza ko umugore acibaruka atosama inda. Nagire ndababwire ko inyuma y’ukwezi kumwe gusa na ho umukenyezi yoba atarongera kubona amaraso ashobora gusama iyo aranguye amabanga y’abubatse mu gihe uwo muvyeyi atonsa neza ku mwanya umwana ashakiyeko kwonka. Ivyo birashobora gutuma kandi uwo muvyeyi anahindura igihe yahora abonera ubutinyanka « Cycle menstruel« ».
+
+« Méthode maman »
+
+Muganga Nibitanga arongera akamenyesha ko ku bakenyezi bikama amaberebere bakayasiga biyumvira ko ari co kimwe no kwonsa, ko atari vyo. Agira ati: « Kwonka ni igihe umwana anunuza ibere rya nyina wiwe barikumwe. Ivyo rero turabihanura abavyeyi kuko ubwo buryo tubwita « Méthode maman«  ni nabwo buryo ba nyokuru bacu ba kera bakoresha kandi bwarabafasha gutandukanya imvyaro ». Uyo muganga anavuga ko iyo umugore yonsa neza nk’uko abisabwa n’abaganga ashobora kumara amezi 6 atarongera kubona amaraso ariko iyo adakurikiza impanuro z’abaganga mu minsi 42 gusa ashobora kuba yamaze kubona amaraso.
+
+Muganga Gilbert ahimiriza rero abakenyezi kugerageza kwamana n’abana baconka batararenza amezi 6 kuko ari bo baba bagikeneye ingaburo y’amaberebere gusa. Iyo babikurikije neza birafasha gutandukanya imvyaro. Ku batonsa neza, muganga Nibitanga asaba ko boca bijukira kwitura abaganga kugira babahe ubundi buryo bwo gutandukanya imvyaro atari « méthode maman ».

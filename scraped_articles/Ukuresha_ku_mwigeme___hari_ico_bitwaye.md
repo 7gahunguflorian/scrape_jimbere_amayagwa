@@ -1,0 +1,17 @@
+# Ukuresha ku mwigeme : hari ico bitwaye ?
+
+Abigeme benshi mu Burundi bubakana n’abahungu atari ababo. Baja ku musore yabakunze ntibaja ku wo bakunze kubera imvo yo gutinya gufata iya mbere ngo babwire umuhungu ko bamukunda. Ivyo vyose bigaterwa n’indero yo ku ziko bahabwa bacaruka kuko ibabuza kugira ico bashikirije mu bagabo.
+
+«…Iyaba n’abakobwa dufise ububasha bwo kuresha noravye urya nyene umutima wanje utererako akaba ariwe ndesha. None nta kundi twemera uwuje, uwo dushaka na we akabana n’uwo ashaka…», ayo ni amwe mu majambo yuzuye agahinda umwigeme N.Chanta yaseruye ariko arabaza impamvu umukobwa arinze yubahuka kubwira umuhungu ko amukunda afatwa nk’igitandero mu kibano.
+
+Dr J.Marie Ningenza, umwigisha muri kaminuza y’Uburundi mu gisata kiraba ibijanye n’inyifato n’imibereho y’abantu kuri ico kibazo c’uko abakobwa boresha avuga ko akenshi bivana n’imico, imigenzo, igihugu n’ibihe abantu baba bagezemwo. Mu Burundi abahungu n’abakobwa ntibarerwa co kimwe. Mu migenzo y’ikirundi kirazira ko umukobwa aca hejuru y’abantu canke ngo afate ijambo mu bagabo. Ariko umuhungu ukwo akura bamubwira ko hariko haragera ko avuga ijambo, ahagarara hagati y’abantu akavuga. Bakamubwira ko ari we azosigarana icumu rya se. Ni ukuvuga ko bamwigisha kuvuga, kwubahuka abantu no kubaganiriza. Umukobwa na we bamubwira ko kizira guhagarara imbere y’umuntu ngo amuvugishe. Ivyo rero bituma amaze kumenya ko abujijwe kuvuga avyiyubara cane.
+
+Uyo muhinga mu bijanye n’inyifato n’imibereho y’abantu avuga ko mu ndero umuhungu ahabwa, harimwo n’uko kizira ko areshwa n’umwigeme. Ko iyo umwigeme amureheje, aba ateye amakenga. Ngo ntaba afise iyo aja ahubwo nyabuna aba agomba uwo yitako kuko aba yamaze gucika icihebe c’umukobwa yabuze uwumuresha. Iyo amaze gukura canke mbere batangura kumwita amazina amutesha agaciro : ngo ‘’isave’’, ‘’ibuguma’’n’ayandi
+
+None abigeme banigwe n’urukundo canke banigwe n’uwo barusavye?
+
+Ningenza ati: «Iyo umuntu avuze, aserura akamuri ku mutima. Bakubujije kuvuga, baba bakubujije no guserura akari ku mutima. Akari ku mutima na ko, hari igihe kaba ari keza, karyoshe, kabishe, akakubakiye n’ivy’urukundo birimwo.Uretse kubivuga rero uca ubibana ukavyigumizamwo, ukabigendana, ukabitunturana mbere ukazokwanduruka upfana na vyo». Abakobwa ico baca bakora akenshi bavyerekanira mu bimenyetso n’inyifato iyo bahuye n’umuhungu bakunda.Umwigeme avuga mu nyambaro ziwe, mu kwimonora, mu bimenyetso vy’umubiri nko kwifata mu maso, gutwengatwenga ubusa, kwerekana amasoni n’ibindi
+
+Kudashobora kuvuga akakubakiye biravuna umutima. Burya urukundo ni ibigumbagumba uba wumva wobwira umuntu. Nyene gukundwa wumva wobimubarira kuko ukeneye kuruhuka. Iyo utabivuze ugwana n’urukundo rukagushengura umutima. Wa mukobwa rero atasavye urukundo, aronse uwuza kumuresha aca apfa kwemera. Ni hamwe no murugo, ashobora kwubaka nabi kuko abanye n’uwo adakunda.
+
+Rero, Dr Ningenza avuga ko hamwe abakobwa bogenda barubahuka, hari ivyogenda birahinduka. Ariko gusa, uwubitanguye akemera gufata ingaruka zo kuvugwa nabi n’abantu mu kibano. Uko bazobibandanya ni ko n’ababahungu bene gukundwa bazogenda baramenyera ko atari bo bonyene bakunda n’abakobwa bakunda kandi babivuze atari imbwa yuriye inzu canke atari akamaramaza. .

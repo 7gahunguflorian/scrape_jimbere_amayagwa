@@ -1,0 +1,17 @@
+# Burundi : imiriyoni zirenga 2 z’amadorari ni zo zitegekanirijwe kwubaka inzira yo mu mazi ihuza ibihugu vyo mu karere
+
+Vuba, haratanguzwa umugambi wo gukora ubwato bubiri bukeshwa amasezerano ari hagati y’ishirahamwe ryo gutwara abantu n’ibintu rikorera mu Burundi Vitraco hamwe na Ecocat Canada mu ntumbero yo kworosha ihanahanwa ry’ibidandazwa hagati y’Uburundi, Tanzaniya, RDC na Zambiya biciye mu kiyaga Tanganyika.
+
+Hari mu kwezi kwa Ruhuhuma 2020 aho ishirahamwe Ecocat Canada rikora ubwato ryatunganya inama idasanzwe n’isabukuru ryitiriwe urudandazwa hamwe n’ikiyaga Tanganyika, i Kigoma mu gihugu ca Tanzaniya. Ni inyuma y’aho iryo shirahamwe nyene ryari rimaze igihe ryibaza icokorwa kugira ngo ikiyaga Tanganyika gishobore gukamishwa  mu vy’ubudandaji. Muri iryo koraniro, amashirahamwe yo mu  Burundi, Congo, Rwanda n’ayo muri Tanzaniya ni ho yari ari mu ntumbero yo guhiganirwa ibice 30% vy’amafaranga asabwa mu mugambi wo kwubaka ubwato bunini bwo kuroba, ubwo kwunguruza ibidandazwa hamwe n’ubugenewe gutwara abantu n’ibintu.
+
+David Nyandwi umuyobozi mukuru w’ishirahamwe Vitraco, asanzwe amenyereye ivyo kwunguruza ibidandazwa biciye mu bwato yarashoboye kunyugwisha umugwi wariko utanga amanota ku bijanye n’umugambi wo gukamisha  ikiyaga Tanganyika : Iryo shirahamwe arongoye ryaciye ritsindira agashimwe k’amadorari angana 562.267$, ni ukuvuga ibice 30% vy’amadorari y’amanyamerika 2.261.836 $, ari na yo akenewe mw’iyubakwa ry’ubwato  2, bumwe bwo gutwara abantu n’ibintu hamwe rero n’ubugenewe gutwara ibidandazwa gusa mu bisagara nka Bujumbura (Burundi), Kigoma (Tanzaniya), Uvira na Kalemie (RDC), hamwe rero na  Mpulungu (Zambiya), biciye mu Rumonge n’i Nyanza-Lac.
+
+Nyandwi agira ati: « Ni vyo hama hari imyidogo  iturutse kw’ibarabara rica ku nkengera y’ikiyaga Tanganganyika RN3 ryononekaye gutyo bigatuma uguhererekanya ibidandazwa hagati y’umurwa mukuru w’ubutunzi n’ibisagara vya Rumonge na Nyanza-lac bigenda nabi, ari ko kandi umuntu akibagira kwiyumvira ku kiyaga Tanganyika kandi na co gishobora gufasha hambavu y’iryo barabara. Ikindi na co burya mu rudandazwa umuntu akorera ku mwanya akaraba ikiringo ibikorwa vyiwe bifata kugira ashikire inyungu. Dufatiye akarorero ku rugendo rwo kuva i Kigoma gushika i Bujumbura, umuntu ari mu bwato ahagenda umwanya w’amasaha 3 mu gihe uciye mw’ibarabara uhagenda amasaha ashika 5. Kwunguruza ibidandazwa bipima itoni muri urwo rugendo nyene, bicishijwe mu bwato hari akarusho k’amafaranga 50.000 y’amarundi ».
+
+Naho biri uko uburyo buracakenewe…
+
+Umuyobozi wa Vitraco agira ati : « Ubwato buzotwara abantu n’ibintu ni  ubwoko bw’ubwo bita Emmanuel. Bushobora gutwarira rimwe abantu 400 hamwe n’itoni 250 z’ibidandazwa mu gihe ubuzotwara ibidandazwa gusa buzoba bushobora gutwara itoni zishika 1200 z’ibidandazwa bitandukanye. Nubwo bimeze uko, uwo mugambi umaze kuronka ibice 30% vy’amafaranga asabwa. Mu ntumbero yo kurondera ayo abura, turiko turahamagaza  abagwizatunga ngo bashiremwo imitahe yabo kuko gushika ubu imitahe 200 ari yo iri kw’isoko ».
+
+Mwomenya ko  uwo mugambi wo gukora ubwo bwato uko ari bubiri uzoshirwa mu ngiro n’ishirahamwe Olga house, ikigo kimaze imyaka irenga  20  gikorera ubwato muri Repuburika iharanira Demokarasi ya Congo,  ku nkengera  y’ikiyaga Kivu na Tanganyika.
+
+Mu ntumbero yo gushira mu ngiro umugambi « Tuyage » ufashwe mu mugongo na USAID, ikinyamakuru Jimbere cifadikanije n’ishirahamwe Search For Common Ground Burundi mu gikorwa co kwandika inkuru zijanye n’ivy’ubutunzi mu gihugu

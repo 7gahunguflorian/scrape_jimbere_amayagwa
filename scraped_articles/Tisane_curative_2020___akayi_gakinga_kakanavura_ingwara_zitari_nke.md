@@ -1,0 +1,15 @@
+# «Tisane curative 2020», akayi gakinga kakanavura ingwara zitari nke
+
+Abantu ngo barashobora kwikingira no kwivura ingwara umukimba bakoresheje icayi citwa Tisane Curative 2020 gikorwa mu ruvangatirane rw’amababi y’Umubirizi, Artemisia, Umukaratusi, Stevia na Quinquina.
+
+J. Paul Uwineza, Umuhinga yanonosoye ibijanye no gufungura akaba n’umukuru w’ishirahamwe ry’ubuhinga n’ubushakashatsi rijejwe gukinga no kuvura rikoresheje ibimera (SONUTD) avuga ko bahingura tisane curative 2020, ivura nyinshi kandi bayidandariza mu gisagara ca Bujumbura, avenue de France n°40, ku nyubakwa yitwa Kumuhororo.
+
+Uwo muhinga asigura ko «Tisane» ari icayi gikuwe mu mababi y’ibiterwa kama ariko bisanzwe bifise ico vyunganira mu mubiri w’umuntu. Ico cayi rero ngo citwa «Tisane Curative 2020», kubera ko gifise ubushobozi bwo kuvura, gukiza no gusubiza itoto umuntu yari agwaye kandi kikaba cakozwe muri uwu mwaka wa 2020. Agira ati: «Tisane Curative 2020, ni tisane nziza cane isanzwe igizwe n’ubwoko bushika butanu bw’icayi ari bwo: Quinquina, Vernonia (umubirizi), Artemisia, Umukaratusi na Stevia ubwo na bwo bukaba ari ubwoko bw’ibiterwa bifitiye akamaro kanini amagara y’umuntu.
+
+Ni igiki cotuma tisane 2020 ihurumbirwa ?
+
+J. Paul Uwineza, yemeza ko iyo tisane isanzwe inagurwa amafaranga 10.000Fbu ifise ibintu vyinshi bihambaye ikora mu mubiri vyotuma abantu bayihurumbira : « Ifasha kugwiza no gukomeza abasoda b’umubiri ari na bo batuma umubiri ugira inguvu gutyo ukigwanira mu gihe watewe n’ingwara. Irakinga ikanavura ingwara z’ivyuririzi. Iragwanya kandi igakinga imigera itandukanye ishobora gufatira mu bihimba vy’ihemero hamwe n’ingwara ziba zaturutse ku gufungura nabi haba mu kurya canke kunywa. Kiravura ingwara zifatira mu mara. Kirafasha mu kugabanya ibiro vy’umurengera ikanakora ku bantu bafise ingwara ya goutte, kirakinga  kandi n’ingwara zitandukanye nk’ama bronchite, hasima, ingwara y’igisukari, n’izindi».
+
+Mwomenya ko rero, nk’uko uwo muhinga abishikiriza, mu gutegura iyo Tisane Curative 2020, upima agafu kayo ku kiyiko kinini, ugashira mu gatasi kanini banywesha ubuyi hama ugaca ushiramwo amazi ashushe ugaca ukoroga n’akayiko hama ukarindira nk’iminota 5 canke 10.  Iheze uca uminina hanyuma ugaca wihereza bigishushe. Ariko ku bo vyogora kumira boshiramwo ubuki bukeyi bwo kukigamura. Gushiramwo isukari birabujijwe.
+
+Ariko naho abantu bakunda gukoresha ibiterwa kama mu kwivura, umushikiranganji w’amagara y’abantu Dr Thaddée Ndikumana, mu kiganiro yahaye abanyamakuru kuri uwu wa 19 Ruheshi 2020 mu kigo INSP, ahamagarira abantu kwitura amavuriro kuko ariyo afise ubushobozi bwo gupima no kuvura ingwara kanaka. Agira ati: « Ego ni vyo, dufatiye ku mico y’abarundi, hariho ibiterwa bitari bike bivura ingwara nk’umukaratusi, umuravumba n’ibindi. Ariko abantu boheba kwigenera imiti bafata ahubwo bakabanza kuja kwa muganga kuko ariho hizewe cane ».

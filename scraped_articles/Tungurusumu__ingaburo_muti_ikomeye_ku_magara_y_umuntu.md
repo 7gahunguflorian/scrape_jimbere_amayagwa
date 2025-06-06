@@ -1,0 +1,17 @@
+# Tungurusumu, ingaburo-muti ikomeye ku magara y’umuntu
+
+Tungurusumu ifatwa nk’uruboga canke ikirungo gifise uruhara mu gutunganya no kuvura imitsi minini. Ishobora gukiza no gukingira abantu indwara umuyoro. Itera abantu kuramba kandi abayikoresha cane nk’imfungurwa ntibakunda kurwara kanseri. Muri make tungurusumu, ni ingaburo-muti.
+
+«Ingaburo yawe yari ikwiriye kukubera umuti kandi n’umuti wawe wari ukwiriye kukubera ingaburo». Ayo ni amwe mu majambo J.Paul Uwineza, umuhinga yanonosoye ibijanye no gufungura akaba n’umukuru w’ishirahamwe ry’ubuhinga n’ubushakashatsi rijejwe gukinga no kuvura rikoresheje ibimera (SONUTD) avuga mu gihe aba ariko arasigura ivyiza vy’ingaburo-muti( Aliment-médicament).
+
+Ku bijanye na tungurusumu, Uwineza avuga ko ifise akamaro gahambaye ku magara y’umuntu. Mbere afatiye ku vyo abahinga bavuga, amenyesha ko yoba ishobora kuvura no gukinga indwara zirenga 80.
+
+Uyo muhinga mu bijanye n’imfunguro amenyesha ko tungurusumu yongera umubiri abasoda bo kwigwanira iyo utewe n’indwara kandi igakinga indwara zifatira mu bihimba bijejwe gutunganya umwanda muto. Igabanya umuvuduko w’amaraso gutyo igashobora gukiza indwara y’umutima.Irinda amaraso kwiremarema ikavura neza imitsi yipfundikanya, ibiturugunya no kuziba kw’imitsi ijana amaraso mu mpande zose z’umubiri. Igabanya ibinure n’isukari nyinshi mu mubiri maze ikavura indwara y’igisukari(diabete). Irinda abantu indwara yo gucibwamwo no kuribwa mu mara, igatera kwituma neza no gusohoka kw’imyanda isohokera mu ruhu. Igabanya umwuka mwinshi wo mu maraso no mu mushishito ari wo utera gusuragura kenshi canke gutura amangati.Tungurusumu iravura n’indwara zifatira mu bihimba vy’ihemero hamwe n’indwara zo ku ruhu.
+
+J.Paul Uwineza abandanya anavuga ko tungurusumu ifise vitamine A ijejwe igikuriro, ukubona neza, ugukomera kw’amagufa, gutunganya umushatsi, ubutinyanka bw’abakobwa bwiza, kwumva neza kw’amatwi, gukomera kw’amenyo, ituma akabiri gatemba itoto. Ifise na vitamine B, C na E. Ayo mavitamine yose na yo agatuma umuntu yiga afise umwete n’ubushake, kwifatira ingingo ngenderwako, gutahura neza, ivyiyumviro bituje,gufata ku mutwe, kugira umuvyibuho mwiza n’ibindi vyinshi.
+
+Uko tungurusumu ikoreshwa
+
+Uwo muhinga yanonosoye ibijanye no gufungura abandanya avuga ko kurya tungurusumu icagaguriye mu mfungurwa ari vyiza, ariko ko kuyicagagura ukayihekenya mu gitondo ata kindi kintu urarya ari vyiza kurusha. Avuga kandi ko umuntu ashobora gucagagura utugoma 3 (uturayi3) twa tungurusumu akatubiriza mw’iritiro imwe y’amazi akabikora mu minota nk’ 5, akanywa akarahuri 1 mu gitondo akandi ku mutaga, akandi ku mugoroba. Uwubigize uko aba agabanije akamoto kayo kameze nka kabi ariko kandi aba anagabanije n’inguvu zayo. Umuntu ashobora kandi kuyisekura akayitekana n’ibifungurwa canke akayiraza mu mazi akayinwa bukeye.
+
+Ariko naho tungurusumu ifise akamaro kenshi bituma uwo ari we wese yoyihurumbira, birabujijwe gukoresha tungurusumu mbisi nyinshi mu gihe uriko urava amaraso menshi aturutse mu gukomereka gutewe n’impanuka canke ariko ava mu gisebe, canke ava mu butinyanka bw’abakobwa bagize amaraso menshi. Birabujijwe ko umwana ari munsi y’amezi atandatu ahabwa tungurusumu kandi si vyiza ko umugore yibungenze ahora akoresha tungurusumu buri gihe.

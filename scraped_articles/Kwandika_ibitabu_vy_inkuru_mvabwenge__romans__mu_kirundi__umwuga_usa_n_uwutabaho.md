@@ -1,0 +1,15 @@
+# Kwandika ibitabu vy’inkuru mvabwenge (romans) mu kirundi, umwuga usa n’uwutabaho
+
+Ibitabu birimwo inkuru zanditswe mu rurimi rw’ikirundi ntibishemeye cane mu Burundi bivanye n’uko abanditsi canke abipfuza kwandika muri urwo rurimi babiheba ku gutinya ko bohava bahura n’ikibazo co kubura ababisoma gutyo bagasesera uburyo bwabo ubusa kandi batari bubugaruze.
+
+Ferdinand Mberamihigo umwigisha muri Kaminuza y’Uburundi mu gisata c’indimi n’amayagwa nyafirika ati: «Kuba ibitabu vy’inkuru z’ikirundi bitagwiriye ntibisigura ko abarundi badashoboye kuvyandika. Oya, ahubwo ahanini biva ku kuntu urugero rw’abasoma ibitabu mu Burundi ari ruto cane kandi na bake basoma ugasanga bihatira ku vyanditswe mu ndimi mva mahanga gusa».
+
+Uyo mwigisha avuga kandi ko ukubura abantu bashobora gushigikira ivyo bikorwa mvabwenge vy’abanditsi bituma n’ababa bafise inyota yo gusiga izina mu bitabu igenda irazimangana. Agira ati: «Hari abanditse ibitabu mu Kirundi mbere biryoshe gose ariko bitamenyekanye vyari gushobora gufasha abatari bake. Akarorero ni ak’igitabu c’inkuru mvabwenge ndende (Roman) citwa “Bugabo burihabwa mwene Nyarucari” canditswe n’uwitwa Juvénal Baransamaje coba casohotse nko mu 1991 canke mu 1992. Hari n’ibindi bitabu vyanditswe n’uwitwa Cyriaque Sumu na vyo bikaba ari nka: “Ntakibabaza nko kuburira hejuru’’, mu 1988, “Ntahomfatwa’’ mu 1993, “Banga ry’abagabo mwene kirageramiwe’’ mu 2003, hamwe n’inshembamvugo (poésie) yasohotse mu myaka ya za 80 yitwa “Ntega abiri ntere ryarenga” ya Augustin Ndirabika. Abo bose ni aberekanye ko kwandika mu Kirundi bishoboka ariko batamenyekanye cane».
+
+Abanditsi n’abo bati: «Uburyo ni ikibazo gikomeye»
+
+Joseph Butoyi arongoye ishirahamwe ry’abanditsi ryo mu Burundi na we avuga ko ibituma abantu batandika mu Kirundi biva ku kuntu ibijanye no kwandika bidateye imbere mu Burundi kandi bitanashigikiwe ku buryo umwanditsi yoshobora gutungwa no kwandika gusa. Anamenyesha kandi ko abantu benshi bafata ikirundi nk’uko umenga kiza inyuma y’igifaransa mbere bakibaza ko atari ururimi rw’ubuhinga. Joseph Butoyi akavuga ko hamwe igisata co kwandika coshirwamwo uburyo, abanditsi bagakarihirizwa ubwenge, inkuru zandikwa mu kirundi zikamenyekanishwa, ibitabu vyanditswe mu Kirundi na vyo vyogwira.
+
+Na we Alain Patrick Muheto arongoye ikigo CEBULAC, avuga ko igikorwa c’abanditsi muri rusangi gikwiye gushigikirwa kuko kikiri hasi cane. Avuga ko Reta n’amashirahamwe avyipfuza vyotanga uburyo bukwiye, hakabaho kurondera no gutanga ubushimwe ku banditsi, hakanagwiza ibigo nka CLAC (Centre de Lecture et d’Animation Culturelle) vyo gusomeramwo ibitabu. Akanabona ko n’ibisomwa vy’abanditsi b’inkuru mu kirundi vyonashirwa mu mashure, abana bakaronka abo bafatirako akarorero gutyo bagakura bakunda kwandika utuntu n’utundi eka mbere banakunda gusoma ibitabu.
+
+Mwomenya rero ko kugeza ubu, mu Burundi hari ibigo vyo gusomeramwo ibitabu (CLAC) 49 ariko ibitabu vy’inkuru mvabwenge vyanditswe mu Kirundi biri mu ma CLAC ari bike cane gose, nk’uko bishikirizwa n’uyo arongoye CEBULAC.

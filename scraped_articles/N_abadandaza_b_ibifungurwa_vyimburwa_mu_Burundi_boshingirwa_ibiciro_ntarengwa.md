@@ -1,0 +1,15 @@
+# «N’abadandaza b’ibifungurwa vyimburwa mu Burundi boshingirwa ibiciro ntarengwa»
+
+Reta y’Uburundi ibicishije mu bushikiranganji bw’uburimyi, ubworozi n’ibidukikije, iheruka gushinga ibiciro bizogurigwako abarimyi ku bifungurwa bimwebimwe abarundi birimira mu Burundi. Ariko none ku badandaza bo vyifashe gute? Ubwo ibiciro vyo kudandazako vyo ntivyoba bikenewe?
+
+Reta y’Uburundi imaze kwihweza inguvu umurimyi agira n’uburyo akoresha gushika yimbure, yarashinze ibiciro vyogurirwa umurimyi. Bimwe muri vyo bikaba bipanze uku gukurikira. Ibiraya: ikiro ni 700 Fbu. Umuceri udasekuye: uw’intete ngufi, ikiro ni 830 Fbu. Umuceri wera w’intete ngufi ikiro ni 950 Fbu. Umuceri w’intete ndende wera ikiro ni 1000 Fbu. Ibiharage vy’ibiremberwa vy’umuhondo ikiro ni 1100 Fbu. Ibiharage bitaremberwa ikiro ni amahera 950 Fbu. Ibiharage bivanze (kirundo) ikiro ni 900 Fbu. Ibitunguru bitukura ikiro ni 1200 Fbu. Ibitunguru vyera ikiro ni amahera 750 Fbu.
+
+Kankindi, umurimyi wo mu ntara ya Kirundo arakenguruka ivyo biciro vyashinzwe na Reta. Ariko amakenga yo ntabura. Agira ati: «Twarabonye ko ku bigori Reta yashizeho uburyo bwo kugurira abarimyi uwo mwimbu. Kandi vyagenze neza. None nko ku bitunguru, canke ku biraya bitabikika neza bica bibora, bizogenda gute? Mbe Reta yoba na vyo izobitugurira? »
+
+Eka amakenga ntari kuri uwo murimyi gusa. Ahubwo no kubasumyi. Iranzi, umugabo w’abana 5 aba mu gisagara ca Bujumbura, agira ati: «Ego koko Reta yashizeho ibiciro ku barimyi, none ku badandaza bo dusumako gute? Bazorangura ibiharage ku 900Fbu bace baza kubidandaza ku 1800Fbu nk’uko tubona bavyiharaje? Reta yari ikwiriye kuraba uburyo ihinyanyura igashiraho n’igiciro umudandaza atarenza ku basumyi. »
+
+Muri Reta bati: «Turiko turavyiga bizotora umurongo…»
+
+Yishura ku bibazo vy’abamenyeshamakuru, kuri uwu wa 6 Mukakaro 2021, mu gihe yari ahejeje kuvuga ibijanye no kwitegurira irima ry’ici, Déo Guide Rurema yavuze ko ubu, abarundi batakirima kugira baronke ivyo barya gusa. Oya kuko mu Burundi ibifungurwa biriho. Ubu ni uguhimiriza abantu barime bimbure kandi bacagurire amasoko. Umurimyi ntahombe kandi n’umudandaza ntahombe. Ngo ni na yo mpamvu bashizeho ibiciro bihanagura agatuguta umurimyi. Uyo mushikiranganji agira ati: « Ubwa mbere umurimyi yararima ibitunguru. Mu kero kavyo umudandaza agaca abimugurira ku mafaranga 200Fbu canke 300Fbu ku kiro. Bigeze mw’isoko i Bujumbura ugasanga biri ku 2500Fbu canke 3000Fbu ku kiro. Urumva ko umurimyi yavunikira ubusa. Ubu rero ivyo ni vyo twaje gukuraho, aho umudandaza yishingira igiciro co kurangurako akongera akishingira n’ico kundandarizako. »
+
+Ku bijanye no gushiraho ibiciro ku badandaza na bo, Déo Guide Rurema avuga ko bakivyiga neza. Ariko akavugako bagiye kuraba uburyo babanza gukuraho aba “komisiyoneri” baza hagati y’umurimyi n’umudandaza mu kugura canke mu kugurisha umwimbu w’abarimyi. Abo ngo ni bo batuma n’umudandaza aduza ibiciro kugira arabe ko yokwunguka ayo aba yatanze. Rero ic’ibiciro ku badandaza ngo kiriko kirigwa kuburyo yaba umurimyi, umudandaza canke umusumyi bose bungukira ku mwimbu abarundi birimira atawidoze muri bo.
