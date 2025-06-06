@@ -1,0 +1,13 @@
+# « Children For Change », umugambi wa SOS villages d’Enfants mu Burundi, utangujwe ku neza y’ibibondo biri mu miryango itishoboye
+
+Ibikorwa vyawo vyuguruwe icese ku wa 21 Ntwarante 2022, i Gitega, mu ntumbero yo gushigikira abana n’urwaruka rungana 4.510 ruba mu miryango 902 : abashika 2.932 bari musi y’imyaka 10, imiyabaga 902 ifise hagati y’imyaka 10 na 14, urwaruka 677 rufise imyaka irenga 14, amashirahamwe 21 yo ku mitumba 21 nyene afashanya n’uwo mugambi kugira ashobore gufasha ingo n’imiryango gutyo abana bayo babeho neza.
+
+Utembereje  amaso ahatari hake mu kibano urabona ko hari abana batari bake babayeho mu buzima butari ubwo kwipfuzwa. Hari impfuvyi zititaweho n’imiryango hakaba abavuka ku bavyeyi ba ntahonikora, ukubaho bikabarusha. Ikitavuzwe ni ugushirwa mw’ishure kuko vyo babirungurukira kure.  Mu ntara zitandukanye, bake cane ni bo bamaze gutahura ingaburo ibereye ico ari co.  Umugambi « Children For Change » w’ishirahamwe SOS villages d’Enfants mu Burundi, aho ni ho uje guterera umuganda, mu kiringo c’imyaka itanu (2022-2026).
+
+Akabirya mu mugambi « Children for Change »
+
+Si irya mbere ishirahamwe SOS villages d’Enfants mu Burundi riranguye umugambi ugana gushigikira iterambere ry’abana haba mu kwitaho indero yabo, mu kubashira mu miryango n’ugukurikirana inyigisho zabo. Nkako, ryatanguye gukorera mu Burundi mu 1979, i Gitega, ritangurana abana bangana 101. Kurondera kwubakira icizere c’ukubaho, abana batagira shinge na rugero, n’ugushira umwana mu muryango, ngivyo bimwe mu biraje ishinga iryo shirahamwe, kuva ico gihe ryatangura gukorera mu Burundi.
+
+Ubu ho rero, hamwe n’uwu mugambi « Children For Change », hari ihangiro rindi rishasha.  Oscar Nahayo, umuhuzabikorwa arongoye umugambi wo gushigikira imiryango n’ikibano muri iryo shirahamwe, agira ati: « Mbere twarashobora gushigikira abana, tukabakurikirana, tukabigisha, ndetse tukabaherekeza gushika barangije amashure yisumbuye, bakaronka urupapuro rw’umutsindo rwa mbere. Ariko ubu, muri uno mugambi, tugiye gutera iyindi ntambwe urwo rwaruka ruva mu miryango ya ba ntahonikora baheza amashure baciye ubwenge bagaca bayahagarika batize za kaminuza, tuzobarihira baje kuminuza mu bisata bipfuza gukurikirana. »
+
+Mwomenya ko uwo mugambi ufashwe mu mugongo n’Ingoma y’Ububirigi biciye kuri SOS Villages d’enfants Belgique, ku ntererano ingana 2.600.000 €, ukaba uzorangurirwa ku mitumba 21 y’amakomine 6 ya Gitega, Cibitoke na Muyinga nk’uko vyashikirijwe na Pascal Bizimana, umuyobozi mukuru w’ishirahahamwe SOS Village d’Enfants mu Burundi.

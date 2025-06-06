@@ -1,0 +1,27 @@
+# Gutahura ivyiyumviro vy’uwundi, kimwe mu birwanya imvugo z’ibiba urwanko
+
+Kumenya hamwe nogutahura ivyiyumviro v’y’uwundi ni kimwe mubirwanya amajambo abiba urwanko hagati y’imirwi itandukanye. Ivyo bishikirizwa na Alexis Ndayizigiye, umuhinga mu vy’inyifato, akaba arongoye ikigo « Clinique de l’éducation et de la psychothérapie (CEP) Turerehamwe ».
+
+Mbega tuvuze gutahura ivyiyumviro vy’uwundi twotahura iki mugihugu caciye muntambara?
+
+Ubwambere gutahura ivyiyumviro vy’uwundi ni ukwishira mumutwe ko atamuntu afise ivyiyumviro bitey’imbere kurusha abandi. Umuntu atezw’imbere n’ivyiyumbiro bivuye kubandi, niho aba umuntu ashitse, n’ingingo afata niho iba ihambaye. Rero gutahura ivyiyumviro vy’uwundi ni ukwumva ko uwundi nawe aba ariko ariyumvira ufatiye kuco wari ushaka kumenya nkakarorero : urishira mukibanza ciwe ukiyumvira, ukakira ivyo akubariye kuko uba uriko urumva ingene nawe aba ariko ariyumvira, ariko arabitahura nk’akarorero ukumva ingene ababaye, ukumva ingene aryohewe, ukamenya ko ivyutanze canke icushaka wewe atariko abandi bategerezwa kucemera canke bakagitahura. Muri ico gihe rero haca haba ukwihanganiranira ivyiyumviro vy’uwundi bizana ico utashaka muraganira kugira wumve ko ico ciyumviro ciwe cohinduka canke mwogira ahantu muhurije.
+
+Mbega ni akahe kamaro ko gutahura ivyiyumviro vy’uwundi?
+
+Akamaro ko gutahura ivyiyumviro vy’abandi ubwambere ni uko umuntu naho yoba afise ico adahurizako n’uwundi batumvikana ko hari ibitandukanya arashobora kugira agatima kamujana muvyiyumviro vyamugenziwe akishira mukibanza ciwe kugira amutahure. Icakabiri nko kuba jeune cane cane iyo bafise ubwo bushobozi bwogutahura i biriko biraba mumutwe wundi canke muvyiyumviro vy’uwundi, ntibaba bagitwarwa n’ico nokwita “objet de manipulation” canke gukoreshwa mubintu bitandukanye n’abantu batandukanye bafatiye kunyungu zabo. Muri ico gihe nk’akarorero twovuga abantu bariko baratera nk’urwanko baratuma abantu barwana canke ibi tubona kuma réseaux sociaux canke muburyo bwogutumatumanako amakuru, umuntu ntaba akiba igikoresho cavyo, nukuvuga ko naho yobiraba agira bimwe asubije inyuma canke bimwe ayunguruye kuko aba arabona ko uwo wundi yabirungitse yagomvye kumukoresha, gutuma ubwenge bwiwe canke umutwe wiwe udashobora kwakira ibindi biba bifise akamaro.
+
+Hoba hari ikindi?
+
+Ikindi naco nuko abantu ntibaba bagisukwa n’inyigisho zitarizo, ni ukuvuga ko iyo yumvise izonyigisho nawe aba afise uruhome canke iconokwita uruzitiro rutemerera ko ivyo vyiyumviro vy’uwundi yamushizemwo rubanza rukamusaba kubiyungurura imbere yuko avyinjiza mumutwe agakuramwo ibimeze neza n’ibitameze neza. Ni ukuvuga ngaho harabamwo iconokwita ko umuntu agira ubushobozi bwokudahuruduka igihe yumvise ibimubabaza canke ibimushavuza, ivyiyumviro bitamuryoheye. Ni ukuvuga ko ataba agishoboye gutanga inyishu yihuta.
+
+Ni izihe ngaruka na cane cane iyo habuze gutahurara ivyiyumviri vy’uwundi?
+
+Nk’akarorero iyo abantu bafise ibibatandukanya, iyo hari ingwano abantu badasangiye inyungu, dufatiye nko kubasirikare, abarwanyi, ubwobushobozi bwogutahura uwundi buragabanuka cane muri ico gihe. Ivyo rero bica bituma habaho kutihanganiranira haba mungo, haba mukibano, abavyeyib ntibihanganira abana babo, n’abana nyene baca baronka umutima wokutihanganira abavyeyi babo, imiyabaga ntitahura ibihe igeze mwo, ntironka uburyo bwogufata akanya ngo yiyumvire ivyoza kubasuka, ikije cose kirabahitana batwarwa nuwariwe wese abahendesheje iki canke kiriya. Inyifato canke indero biratituka cane,usanga hariho amanyama, guhohotera uwundi, gufata kunguvu abantu, ishavu rirenze. Hariho n’iyindi nyifato ishobora gushika kubera utaba ubabara uwundi haraba yuko nawe munyuma udashobora kwibabara, muri abobantu harabamwo kwiyahura, baragira inyifato zokwigirira nabi bonyene ubwabo.
+
+Hagati y’imirwi y’abantu naho?
+
+Hagati y’imirwi idasangiye ivyiyumviro ingaruka ni uko abo bantu batigera bahuza. Icakabiri batera ivyo vyiyumviro no mubana babo ugasanga nk’umuvyeyi arabwiye umwana canke communauté iyi canke umurwi uyu urabwiye abana babo ko bariya bantu ari abansi, nabariya gutyo nyene uce usanga harabaye urukurikirane rw’urwanko nokutihanganiranira ibihe birebire. Nk’akarorero muri ibi bihe vyacu vyanone ni ukuvuga ko urunganwe rwaciye mubihe bitandukanye nubwo tutari mundwano, hari ho ibintu bitarahera indani muribo.
+
+N’iki cokorwa kugira abantu batahure ivyiyumviro vy’abandi, vyokorwa nande?
+
+Imiryango,amashirahamwe ashigikira Reta, amashengero, abanyapolitique bakwiye kunegura bimwe bihanitse inyifato iyariyo yose yoza ihagaze kumacakubiri, ihagaze ku moko, kumigambwe bose bakaguma bayitera ivyatsi kugira ngo k’agatima, b’abantu bari bafise binjirwamwo kandi kabinjiyemwo atanguvu na ndende zibaye, kagende karavayo, kagende karahinduka. Gutahura ivyiyumviro vy’uwundi bikura bivanye n’ibikorwa ni ukuvuga ubushobozi bwogutahura uwundi bikura bivanye n’ibikorwa vyoguhuza, vy’kunywana,bigiye birarwira mubantu. Kuruhande rw’abavyeyi bategerezwa gufasha abana babo babigishe bakiri bato ingene bashobora kwakira ivyiyumviro vy’uwundi na canecane mukwereka akarorero keza batoyi babo bashobora kwakirana kwihanganiranira, kwumviriza uwundi. Mbere niyo hagize uwubabara bakabona ko bababaranye na we, ubwobushobozi buraheza bukarwira mubana.

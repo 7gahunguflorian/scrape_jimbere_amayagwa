@@ -1,0 +1,37 @@
+# PRODER : imiriyoni 53 USD zigiye gufasha kugabanya ubukene mu miryango yo hagati mu gihugu
+
+Sara Mbago Bhunu umuyobozi mukuru wa FIDA mu karere ka Afirika y’ubuseruko n’iy’ubumanuko yari mu rugendo mu Burundi kuva ku wa 26-29 Ndamukiza  2022. Akaba yazanywe no kugirana amasezerano hagati y’ishirahamwe FIDA na Reta y’Uburundi ibicishije mu Bushikiranganji bw’ikigega ca Reta yo gushigikira umugambi mushasha PRODER ufise ihangiro ryo kugabanya ubukene mu miryango yo hagati mu gihugu. Yarabonanye n’umukuru w’Igihugu c’uburundi aranishikira ku rubuga kwirabira aharangurirwa imigambi ifashwe mu mugongo na FIDA.
+
+Amasezerano Sara Mbago yasizeko umukono na Reta y’Uburundi ku wa 27 Ndamukiza 2022 agizwe n’ingabire y’amadorari y’abanyamerika 42.950.000 USD, hamwe n’ingurane izosubizwa ku nyungu nto (prêt concessionnel) ingana n’amadorari y’abanyamerika 10.700.000 USD, nk’uko bimenyeshwa na Domitien Ndihokubwayo umushikiranganji w’ikigega ca Reta. Ayo na yo akaba ari ayo gushigikira umugambi mushasha wa Reta PRODER.
+
+Uwo mugambi PRODER, uzorangurirwa mu ntara 12 arizo Bubanza, Cibitoke, Muramvya, Rutana, Ruyigi, Karusi, Kayanza, Ngozi, Gitega, Muyinga, Makamba na Bururi. Izo ntara zikaba zacaguwe hisunzwe ukuntu abantu baho bakenye, bakunda guhura n’ingaruka ziterwa n’ihindagurika ry’ibihe, ko bishoboka ko harangurirwa imigambi y’uburimyi, ubworozi bw’ibitungwa bitobito na  bininibinini.
+
+Uwo mugambi PRODER uzotangura mu 2022 urangire mu 2028. Ugenewe kuzoshigikira ingo 85.000 zigizwe n’abanywanyi 510.000, harimwo ibice 50% vy’abakenyezi n’ibice 50% vy’urwaruka. Uwo mugambi umaze kuja mu ngiro, bitegekanijwe ko, n’imiburiburi ubuzi 39.000 buzoba bwatanzwe canke bwashigikiwe, amashirahamwe yo kwiteza imbere n’imiburiburi 7.840 azoba yashinzwe atangujwe n’urwaruka n’abakenyezi, nk’uko bivugwa na Sara Mbago Bhunu, Umuyobozi wa FIDA mu karere ka Afirika y’Ubuseruko hamwe n’iy’Ubumanuko.
+
+Sara Mbago yishikira we nyene kuraba imigambi irangurirwa hagati mu gihugu…
+
+Kuva ku wa 28-29 Ndamukiza 2022, Sara Mbago Bhunu ari kumwe n’umushikiranganji w’uburimyi, ubworozi n’ibidukikije yagize urugendo rw’iminsi 2 mu ntara ya Gitega, Ngozi na Kayanza, aho yishikira ku rubuga kwirabira we nyene imigambi ya Reta iriko irarangurwa mu gihugu, harimwo n’iyishigikiwe na FIDA.
+
+Urwo rugendo rukaba rwatanguriye mu ntara ya Gitega aho yagendeye ikigo kirimwo ibiro vy’abazoba bajejwe gukurikirana ibikorwa vy’abenegihugu ku mutumba Kiremera, komine Giheta, aho umwenegihugu wese agize ingorane, imirima ikagwara canke inka zikagira ingorane biturutse ku ngwara bazohora bitura. Hazoba ububiko bw’imiti y’ibiterwa n’ibitungwa, kandi hazotangirwa inyigisho nkarishabwenge ku barimyi n’aborozi. Bitegekanijwe ko ikomine imwe imwe yoba ifise mwene ivyo biro.
+
+Aho nyene umugambi PRODEFI ufatwa mumugongo na FIDA wubatse ivyo biro, hariko haranubakwa inyubakwa zizogwirizwamwo ibitungwa nk’inka, inkoko, ingurube, amafi n’ibindi kugira mu nyuma bimaze kugwira bazobironse abenegihugu bari mu makoperative ariko babanje kugirirana amasezerano. Kandi  hategekanijwe yuko mw’ikomine imwe imwe hoba hariho n’imiburiburi ahantu bororera inka zitari musi 100, ingurube zitari musi ya 2.000, inkoko zitari musi ya 5.000, nk’uko bishikirizwa na Déo Guide Rurema.
+
+Muri iyo ntara nyene ya Gitega, Sara Mbago yanishikiye ku kigo kiri ku mutumba Bitare yo muri komine Bugendana cororewemwo inka zavuye mu gihugu ca Kenya 50 n’inyana 13. Imwe imwe muri izo nka zifise inyana ikaba ikamwa amaritiro ari hagati ya 10 na 12, nk’uko bivugwa na Elie Manirakiza ajejwe urwo ruhongore. Aho nyene hakaba hagendewe n’imirima y’akarorero y’ibiharage, ibigori n’ibiraya vya koperative « Sauveur ».
+
+Sara Mbago agendera koperative yorora inkoko, n’iy’abarimyi b’umuceri i Ngozi
+
+Sara Mbago ari kumwe n’umushikiranganji w’uburimyi, ubworozi n’ibidukikije yashitse no mu ntara ya Ngozi, aho yagendeye koperative “Manovu” yorora inkoko, iri ku mutumba Kinyami komine Ngozi. Rekamanyama Diego King umwe mu batanguje iyo koperative ati: «Twatanguye ubworozi bw’inkoko mu mwaka wa 2018 dutanguje inkoko 2.500. Twarageze ku nkoko 14.000, duca dutangura kuzigabanya. Ubu dusigaranye inkoko 9.000, kandi ku munsi zita amagi 9.000. Muri iyi koperative dufise abakozi bamaho 86, n’abandi bo ku munsi ku munsi 120. » Ariko anamenyesha ko intambamyi bahura canecane ari izo kubura isoko ry’aho boshorera amagi, kubura ibifungurwa vyazo n’imiti.
+
+Déo Guide Rurema, akaba yaciye yemerera iyo koperative ko yosaba uruhusha mu bushikiranganji bakabemerera gushora ayo magi mu bihugu vyo hanze, aho yatanze akarorero avuga ko mu gihugu ca Congo bayakeneye cane. Na we Sara Mbago Bhunu, akaba yabasavye ko iyo koperative yoba iy’icitegerezo kugira izoze iranigisha abandi ubuhinga bwo kworora inkoko kijambere. Ngo ntiborore izita amagi gusa ahubwo n’izitanga inyama ntizisigare inyuma.
+
+Muri iyo ntara nyene, yanagendeye n’umurima w’akarorero wa koperative y’umuceri upima ihegitari 108 watunganijwe n’umugambi PRODEFI. Bucumi umwe mu bakurikirana uwo murima uri mu mwonga wa Nyakijima ya 2, aho abenegihugu bashize amatongo hamwe baca batangura kurimira mu kiringo kimwe, baterera rimwe kandi imbuto imwe. Avuga ko ubwa mbere batararonka inyigisho z’umugambi PRODEFI, bahora baharima mu kajagari, ugasanga bimbuye nk’itoni 2 canke 3 kw’ihegitari. Ariko kuva aho batanguriye gukorana n’uwo mugambi mu 2014, ubu bimbura itoni zirenga 6 kw’ihegitari, mbere baguma bagerageza n’ubundi buhinga mpaka bageze kw’itoni 8 kw’ihegitari.
+
+Sara Mbago agendera ubwororero bw’amafi, hamwe n’umutumba utunganijwe kijambere…
+
+Ku munsi ugira 2 w’urugendo arimwo mu gihugu hagati, Sara Mbago Bhunu, kuri uwu wa 29 Ndamukiza yagendeye ubwororero bw’amafi n’inkoko bwo mu Rukeco mu ntara ya Ngozi. Ubwo na bwo bukaba ari ubwa koperative ADECA Nyakijima-Rukeco igizwe n’abanywanyi 115. Si amafi bafise gusa n’inkoko, ahubwo baranorora n’ingurube kandi baranarima imboga.
+
+Eka mbere yanishikiye mu ntara ya Kayanza ku mutumba wa Rwegura muri komine Muruta uteyeko ibiraya n’ingano vya koperative y’abarimyi COCODE. Uwo mutumba ukaba waratunganijwe neza uciweko imikobeko aho abanywanyi b’iyo koperative bahabwa inyigisho vyose biciye k’umugambi PRODEFI. Uwo mutumba ukaba ari wo w’akarorero mu yindi mitumba 25 iri muri iyo komine na yo nyene itunganijwe kijambere. Urugendo yarimwo akaba yarurangirije ku mutumba Kinga muri komine kayanza aho yiboneye umurima w’ingano utunganijwe ku buhinga bwa kijambere.
+
+Sara Mbago Bhunu avuga ko, kuba yishikiye aharangurirwa imigambi itandukanye vyatumye yibonera neza igikwiye gukorwa kugira abenegihugu babandanye kwiteza imbere. Anamenyesha ko bazovugana na Reta y’Uburundi kugira ngo baze bijukire no guhimiriza abarimyi kugira imitumba y’akarorero iteyeko ivyamwa. Anavuga kandi ko mu vyo umugambi mushasha PRODER wimirije gutangura uzokora, harimwo uguteza imbere ibijanye n’uburimyi n’ubworozi, gutunganya imirima ku buhinga bwa kijambere no gufasha urwaruka n’abakenyezi kuronka ivyo bakora mu ntumbero yo kwiteza imbere no guteza imbere ikibano.
+
+Mwomenya rero ko, imbere yuko Sara Mbago atangura urugendo rw’iminsi 2 mu gihugu hagati, yabanje kwakirwa n’umukuru w’igihugu c’Uburundi Evariste Ndayishimiye mu ngoro iwe iri mu gisagara ca Bujumbura. Mu vyo baganiriye harimwo ukuntu imigambi ya Reta ifashwe mu mugongo na FIDA iriko irafasha mu buryo buboneka iterambere ry’imiryango. Banaganiriye kandi no ku bijanye no gushigikira umugambi wa Reta mushasha PRODER ugiye gutangura ufise intumbero yo kugabanya ubukene mu gihugu.

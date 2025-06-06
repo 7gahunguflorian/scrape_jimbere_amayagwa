@@ -1,0 +1,23 @@
+# « Miss Burundi 2022 » : utubazo 3 twibonekeje, n’inyishu zishoboka
+
+Iyi minsi 2 iheze ntivyari vyoroshe kubera ivyavuye mu gice ca nyuma c’ihiganwa rya « Miss Burundi 2022 ». Mudukundire tubigarukeko kandi…
+
+1. Ku wa gatatu w’indwi irangiye, igenekerezo rya 4 Rusama 2022, harabaye urukino rutari rworoshe hagati ya Real Madrid na Manchester City, rwakurikiranywe cane mu Burundi. Mu gisagara ca Bujumbura, impari hagati y’abafana b’iyo migwi ntizorohereje abadakurikirana agapira, na rirya urwo rukino rwabaye mu masaha yitereye y’ijoro.
+
+Bukeye kabiri ku wa gatanu naho, « Miss Burundi 2022 » yo yaje ari agahebuza ! Umwigeme Ngaruko Kelly, yatahanye urugori, aguma avugwako vyinshi, vyiza na bibi tutogarukako (umwanya w’abasomyi ni ukwama tuwubahiriza). Kimwe gusa twovuga : nk’umwe mu bari baronse amahirwe yo kuja kurorera igice ca nyuma c’iryo higanwa, amashusho yerekanywe ko habaye abahakanye ivyavuye muri « jury » (akanama nkoranyambaga), ni ibisanzwe. Ni co kimwe n’ivyabaye mu rukino rwo ku wa gatatu : mw’ihiganwa, hama habaye impari ku bivuyemwo. Kandi burya, impari ni zo ziryosha cane ibintu.
+
+Ikibi ni mu gihe bifashe iyindi ntumbero mu kuyizanamwo izindi mvo, zaba iza poritike, iz’urukoba, iz’ubwoko, n’ibindi. Ariko gushigikira uyu canke uriya, kugaragaza umunezero canke umubabaro, ni ibisanzwe. Mu Burundi, kahise kacu, ivyo twagiye turacamwo (vyerekeye canecane inryane za poritike n’ubwoko), birumvikana ko hari abashobora kuvyitwaza iyo habaye impari. Inyishu si uko dutanako umwikomo, ngo aba ni beza aba na bo ni babi, ariko nuko umwe wese yokwishira mu kibanza c’uwundi, hanyuma bukebuke bigahera. Igikwiye kuruta vyose ni ukwama twibuka ko « Twese turi hamwe, birashoboka ! »
+
+2. Ikindi kibazo cagarutse ni uko iryo higanwa ryari ritunganije : ko hari abarondeye amatike yo kuja kuyiraba bakayabura, amashusho (« Live ») ya RTNB atari meza, canke ukumenyesha amakuru guke kw’ishirahamwe « SS Entreprise » ritunganya ihiganwa rya « Miss Burundi ».
+
+Kuri uwu w’Imana, bamwe mu Barundi n’abanyamahanga bakoresha urubuga ngurukambumenyi rwa « Twitter », barenga 400, bari baramutse bahurira mu kiyago cagarutse kur’ivyo bibazo. Sultan Souleyman arongoye ishirahamwe SS Entreprise, yaragerageje kubitangako umuco. Yagize ati: « Abavuga ko babuze aho bagurira amatike, twari tumaze ikiringo c’iminsi 10 duca mu binyamakuru bitandukanye, bishoboka gute ? […] Na yo amashusho ya RTNB kutamera neza, vyavuye ku muhora wa interineti wa Spidernet utari umeze neza […] Ku vyo kumenyesha amakuru kw’ihiganwa rya Miss Burundi, ego turabona ko bidashemeye, tugiye kubinagura […] »
+
+Naho ibibazo vyose ngira bitaronse inyishu muri ico kiyago, mu Burundi si kenshi tubona aho abantu baza kwishura ku ngorane ziri mu vyo baba biyemeje kurangura. Sultan Souleyman yatanze akarorero keza : ukuri gushirira mu kuyaga. Kandi umugirwa wo kugeragiza kuganira na bose, canecane abo mutabona ibintu kumwe, ni vyo bituma ibintu bikosorwa, biba vyiza gusumba.
+
+3. Ica nyuma, ari na co ngira twari guherako: umwigeme kugira atorwe kuba « Miss Burundi », harabwa iki ? Hoho uwo yatowe asabwa iki ?  Kur’ico, Sultan Souleyman yishuye ko igikomeye kirabwa ari umugambi wiwe, uko uzoshirwa mu ngiro mu kiringo c’umwaka umwe utegekanijwe.
+
+Abatari bake turazi ivy’imigambi uko bitunganywa, na canecane mu Burundi bisa n’uko ari bishasha ku rwaruka. Si icoroshe. Nk’uko umwe mu bitavye ico kuganiro yavyibukije, Daly Ngarambe (yari muri jury ya Miss Burundi 2021), abo bigeme baja guhiganwa baba bakiri bato (ntibarenza imyaka 25), irangurwa ry’imigambi baba biyemeje ntiryoroshe kuko bisaba uburyo bwinshi, ukwitanga kudasanzwe, ababafasha, ivyo na vyo bikaba bitoroshe gushikako mu kiringo c’umwaka umwe.
+
+Abigeme bitavye iryo higanwa, abatowe n’abatatowe, ababishoboye tubabe hafi kugira bazoshikane ivyo biyemeje. Si igikorwa ca SS Entreprise gusa, ariko ni igikorwa c’Umurundi wese yipfuza ko igihugu ciwe kigira isura ryiza mu makungu. Ni co Imana yaduhaye, ngo tugikunde kandi tugikorere. Kandi ivyo twiyumvira ko tuzokorera abo bigeme, tubandanye tubikorera urwaruka rwose runyamigambi, rurara ruticaye kugira ruteze imbere imiryango yarwo n’igihugu.
+
+Sinoheza ntashimiye Ishimwe Aimée Gloire, yatumye nandika iki gisomwa mu kirundi, ni ubwa mbere (igifaransa ni co abenshi kitworohera). Uko ahayagiza ururimi rwacu kavukire, rutuma niyumvira kurukoresha cane, kuruvuga no kurwandika gusumba. Na kare ibi n’ibibazo vy’Abarundi, ni twe tuzonabitorera inyishu. Abigeme, urwaruka rwo mu Burundi, ni bato ariko ntibari gito…

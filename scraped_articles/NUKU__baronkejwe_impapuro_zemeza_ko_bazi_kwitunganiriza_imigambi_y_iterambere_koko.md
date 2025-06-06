@@ -1,0 +1,14 @@
+# NUKU: baronkejwe impapuro zemeza ko bazi kwitunganiriza imigambi y’iterambere koko
+
+Abo ni 24, harimwo abakenyezi 14, bagize umurwi wa mbere w’urwaruka rwitunganiriza imigambi y’iterambere bafashwe mu mugongo n’umugambi NUKU. Bakaba barangije kur’uyu wa 6 Nyakanga 2023 inyigisho zo gukora integuro y’umugambi (Business Plan), uguharura ivyinjira n’ibisohoka hamwe n’amategeko agenga amashirahamwe/koperative bari bamazemwo iminsi ku cicaro ca PAEEJ, i Gitega
+
+NUKU, impfunyapfunyo ya « Nawe Urashoboye Kubikora », ni umugambi washinzwe ukaba unafashwe mu mugongo n’Ingoma y’Ubuhorandi, ugashirwa mu ngiro n’ikinyamakuru Jimbere gifadikanije n’ishirahamwe KazeCom. Uyo mugambi wakoze cane mu myaka yawo ya mbere (2021-2022) mu kumenyekanisha urwaruka ruri kukivi mu kugwiza umwimbu, biciye cane cane ku mbuga ngurukanabumenyi. Mu gice cawo ca kabiri, NUKU ukaba uriko urakora kugira rwa rwaruka rwamenywa rubashe gushikira imitahe, maze rwagure inganda rukoresha n’amasoko rushoreramwo, maze ubutunzi bwiyongere.
+
+Inyigisho rero zavyaye « certificats » watanzwe kur’uyu wa 06/09/2023, zikaba zatanzwe n’abahinga batandukanye nka Michel Nsengiyumva asanzwe akora muri ANACOOP akaba uwitunganiriza imigambi y’iterambere mbere akigisha no kuri kaminuza, Me Nizigiyimana Louis Pasteur na M.A Nshimirimana Théon bose bagiye baragaruka ku vyirwa vyo gutunganya amashirahamwe/koperative.
+
+Umuhuzabikorwa wa PAEEJ Pr Manirakiza Désiré yabwiye urwo rwaruka ati: « Muhiriwe muhishije ko izi nyigisho muzironse imbere yo gusaba ingurane y’umutahe w’ibanze. Ubu uwuzotorwa mu bahabwa ingurane azokora ivyo atahura mu gihe abandi bahora babanza kugwana no gusaba ingurane, PAEEJ yamara kubemerera bakabona kuronka inyigisho. Ivyo mwize rero gende muvyigishe abandi munabafashe kwandika integuro y’imigambi yabo. »
+Pr Manirakiza akaba yaranezerejwe n’ingene abakenyezi baserukiwe bihagije mur’izo nyigisho, ku rugero rutari rumenyerewe mu bikorwa bibera kuri PAEEJ.
+
+Roland Rugero aserukira ikinyamakuru Jimbere ari naco catunganije izo nyigisho mu ntumbero y’umugambi NUKU, yarateye intege abakenyezi bashoboye kumenyekanishwa n’uwo mugambi bahejeje izo nyigisho yongera abahimiriza kwama ari imboneza mu kibano: « Kimwe mu bizotwereka ko twakoze neza ni urugero rw’ingurane abaciye muri NUKU bazoronka muri PAEEJ, BIJE canke BIDF, kugira bagure ibikoresho bikenewe vyo kuduza umwimbu, bagure inganda zabo n’amasoko »
+
+Yarongeye aributsa abari bamaze iminsi bariko barigishwa ko batokwijajara ngo ni uko bahawe inyigisho n’abahinga harimwo abo muri PAEEJ, ko bizoca vyoroha kuronka ingurane muri PAEEJ: « Haba na mba! Nta nkunzi izohaba, mumenye ko muzotanga imigambi yanyu yigwe nk’iyindi amajana izoba yarungitswe! Ntimuze mutumaramaze rero. »

@@ -1,0 +1,31 @@
+# Ukugarukana ibisata bimwebimwe mu mashure y’uburaro bisaba ukwitegurirwa bikwiye
+
+Harashimwa ingingo ya Reta yo gusubiza ibisata bimwe bimwe mu mashure  y’uburaro. Yamara, hari ivyankenerwa bisabwa kugira uyo mugambi uranguke neza.
+
+Mu mashure 52 yisumbuye ari mu ntara y’indero ya Mwaro, 6 yonyene niyo afise uburaro. Inyuma yaho Umukuru w’Igihugu amenyesheje ko hagiye gusubiwizwaho amashure y’uburaro no gusubiza ibisata bimwebimwe muri ayo mashure mu mwaka w’ishure wa 2024  ushira 2025, muri iyo ntara y’indero, abanyeshure biyongereyeko ibice 75 ugereranije n’ibiharuro vyaheruka. Umuyobozi w’indero mu ntara, Omer Barandagiye, amenyesha ko abanyeshure bashasha bangana na 450 bagiye mu mashure y’indaro. Uwo muyobozi arakenguruka iyo ngingo ariko agasaba ko hokwogerezwa igitigiri c’amashure y’uburaro   kugera ku mushure 10 harimwo n’amashure y’ubuhinga
+
+Ku bijanye n’akanovera k’inyigisho, bamwe mu bavyeyi baridogera itituka ry’akanovera k’inyigisho . Zimwe mu mvo zashirikirijwe n’abavyeyi harimwo abigisha bata akazi bitwaje ko indero y’abana isigaye igoye gukurikirana. Ku bw’ivyo, kugira ngo abana baronke inyigisho z’akanovera kandi baronke ubumenyi bukwiriye, abavyeyi basigaye bahitamwo kubarungika mu zindi ntara nka Bururi, Ngozi na Gitega aho amashure y’indaro akukira amadini canke abapatiri. Umwe mu bavyeyi agira ati : « Tubarungikayo kubera ko bitaho neza abana kandi mu vyigwa vyabo bakabashiramwo ibijanye n’ijambo ry’Imana. Vyongeye, ntibafyinisha abana ». Abo bavyeyi bavuga ko baba biteguye kurihira  abana babo amafaranga kugira bige neza kuko uburyo abana babamwo mu mashure y’indaro atari  bwiza mu gihe umunyeshure akeneye kubaho neza mu kugira inguvu nyishi  kugira yige anonokewe.
+
+Mu ntwaro, naho nyene, barakenguruka iyo ngingo. Ku bwa Athanase Ciza, umuyobozi mwishikira mu biro vya Buramatari w’intara ya Mwaro, iyo ngingo ije hageze agasaba ko mu mugwi ujejwe gushira mu ngiro uwo mugambi hoshirwamwo abantu basanzwe bari ku rubuga kuko nibo bafise imbonakazoza nyayo y’ibikorwa bikenewe kugira ngo uyu mugambi uzogende neza.
+
+Ku mashure y’indaro ya Muyebe na Mwaro
+
+Iyo bavuze indero akanovera , bafatira ku bintu bitatu nyamukuru bidahara na vyo akaba ari abigisha bafise ubumenyi bukwiriye, ibikoresho nyavyo n’ikirere ciza co kwigiramwo. Ariko mu  mashure amwe amwe yo mu ntara ya Mwaro, ivyo bintu uko ari bitatu ntivyigera bihwana.
+
+Kw’ishure rikuru rya Muyebe, nta nyubakwa zibereye zo kwakira abanyeshure zihari. Inyubakwa yitwa ngo ni iy’uburyamo bw’abanyeshure ntigira ibitanda n’imatera. Iciyongereyeko, haribonekeza n’ikena ry’ibikoresho mfashanyigisho nk’ibitabu, inzu y’isuzumiro(laboratoire) hamwe n’inzu y’isomero ry’ibitabu (Bibliothèque), tutibagiye igitigiri kidashemeye c’abigisha. Umuyobozi w’ishure, Léonce Nihozaagira ati : « Kw’ishure rikuru rya Muyebe, mu mwaka w’ishure wa 2024 ushira 2025, dufise abanyeshure bangana na 875 muri bo 645 biga bataha, 230 biga baba mu ndaro . Ariko naho biri uko, turahura n’ingorane nyishi  zishikira abana zikabatesha kwiga nk’uko vyategerezwa ».
+
+Aranerekana ukuntu iryo shure rikenye imatera n’uburyamo bw’abanyeshure bubereye .Agira ati : «  Mu bisanzwe, umunyeshure wese yategerezwa kugira igitanda ciwe bwite ariko ubu baryama ari  babiri ku gitanda kimwe ». Ikindi naco, avuga ko, kubera ata modoka iryo shure rifise,  iyo umunyeshure agwaye canke hageze ko baja gusuma, bisaba ko hari ayandi mafaranga aca akenerwa . Uwo muyobozi arongera ati : « Dukoresha amafaranga y’amarundi yababa imiriyoni zibiri ku kwezi yo kwunguruza ibifungurwa canke abanyeshure bagwaye n’abagiye mu nkino ».
+
+Kw’ishure rikuru rya  Mwaro, umuyobozi w’ishure, Epitace Bayubahe avuga ko ibibazo nyamukuru bihanze iryo shure ari ubukene bw’abigisha, ubukene bw’intebe. Ibi ngo bituma intebe imwe isangirwa n’abanyeshure batatu, bigatuma ibikorwa bitagenda neza. Vyongeye iryo shure ngo abigisha rikenye, ni cane cane, abo mu vyigwa vy’indimi n’ubutunzi :  « Duca twikora ku bakoranabushake n’abakutsakivi ».
+
+Ikindi kibazo kigaragara ni ikijanye n’ibisata abigisha banonosoye. Abayobozi b’amashure bababijijwe, ngo urugero rw’abagisha bamwe bamwe ruri hasi cane ku buryo bw’uko bibagora no kwandika imirongo na cumi y’amungane badashizemwo amakosa. Abo bayobozi bemeza ko ubwo bushobozi buke aribwo  buteza ingorane zijanye no gutanga ubumenyi    vyigaragaza mu vyigwa bimwe bimwe.
+
+Imibereho mibi ni ikintu kizingamika inyigisho
+
+Abanyeshure bo kw’ishure rikuru rya Muyebe  bavuga bati : « Naho ishure riturekurira kwigurira amavoka kugira ngo kumbure isahani y’imfungurwa yisununura, ni gake tuva mu buriro bw’ishure duhaze. Birakwiye ko imfungurwa zongerezwa .»
+
+Ku bw’abayobozi, ngo ko uwo mugambi wo gusubiza ivyo bisata mu buraro waragarukanywe, ayo mashure yategerezwa gufashwa mu kwubakirwa inyubakwa z’uburyamo bw’abanyeshure bugezweho bunorohereza abanyeshure bagendana ubumuga. Barashimikiye cane kandi ku kuronswa ibitanda  n’imatera , gusanura inyubakwa zishaje, kwubaka inzu zo gusomeramwo ibitabu(bibliothèque) n’inzu z’isuzumiro(laboratoire) hamwe no kwongereza uburyo bw’amafaranga bugenewe gufungurira abanyeshure bivanye n’ukuntu ibiciro bidahengeshanya kuduga kw’isoko. Ikindi berekanye, nuko  uwo mugambi wo kugarukana amashure y’uburaro washizweho, birakenewe ko habanza gutorerwa inyishu y’ingorane  kuko  ngo ivyo bitabaye nta kintu kinini bizoza bifasha mu guteza imbere inyigisho.
+
+Mw’ishirahamwe ry’abigisha Conapes nabo ni ko babibona , ngo iyo ngingo yo kugarakana amashure y’uburaro ni nziza ariko haba hakwiye gushirwaho vyankenerwa.  Emmanuel Mashandari arongoye iryo shirahamwe agira ati « Mu mashure menshi, imibereho y’abana  irimwo agahaze mu bijanye no gufungurirwa, ikena ry’ibitanda  n’imatera. Birakenewe ko Reta yongeza inguvu kugira hashirweho uburyo bworohereza abanyeshure kwiga neza ».
+
+Abandanya avuga ko Reta itokwibagira gushiraho amasuzumiro (laboratoire) n’inzu z’ibitabu (bibliothèque)  arongera ati : «  Ivyo twigisha mw’ishure ntibikwiriye. Abanyeshure bategerezwa kwungura ubumenyi mu kuronka ukuntu basoma ibitabu , mu kwimenyereza mu masuzumiro no mu kwitegura bibereye» .

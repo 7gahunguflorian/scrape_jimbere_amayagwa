@@ -1,0 +1,19 @@
+# Uburyo bwo gutanga amakuru ku neza y’abenegihugu…
+
+Hagiye kubaho imigwi ku mitumba y’abenegihugu bumviriza amaradiyo, basoma ibimenyeshamakuru, bakurikirana tereviziyo bagahanahana ivyiyumviro ku biganiro bishikirizwa kandi inyigisho bakuyemwo bakazisangiza abandi mu kibano. Iyo migwi ikazoba ifise n’uburenganzira bwo gusaba ivyo binyamakuru kubashikiriza ibiganiro bihuye n’ivyo bakeneye
+
+Jacques Bukuru umuyobozi mukuru mu bushikiranganji bwo gutumatumanako amakuru, ubuhinga ngurukanabumenyi n’ibinyamakuru amenyesha ko iyo migwi ibwirizwa kubaho. Agira ati : «  Ico ni iciyumviro twazanye tumaze kubona yuko ibinyamakuru vyinshi canecane ivya Reta birondera amakuru, bigira ibiganiro, bikandika ibintu ubona ko bitajanye n’imyitwarariko y’abenegihugu. Ugasanga umuntu yakoresheje amafaranga menshi cane mu kuja kubirondera mugabo ntabe azi ko abaja kubisoma, kuvyumviriza canke abaja kubiraba ko arivyo bipfuza.»
+
+Kubw’ivyo Jacques bigirimana amenyesha ko ubushikiranganji bwo gutumatumanako amakuru, bwaciye bugiriranirana ibiganiro n’abarongoye ibinyamakuru n’amaradiyo mu kwezi kwa Ruhuhuma, burabereka ko badakwiye ko babandanya bakoresha uburyo bwinshi bavuga canke bavugisha abantu ibintu bitagirira akamaro abenegihugu kuko amakuru meza ari ayafasha abenegihugu kuva mu ngorane barimwo. Abenegihugu nabo kugira bave mu ngorane barimwo nuko babwirizwa kuronka amakuru abubaka.
+
+Ivyo rero biri mu vyavugiwe mu kiganiro co kuri uwu wa 8 Ndamukiza 2022 catunganijwe n’ubwo bushikiranganji cabereye mu nyubakwa za King’s Conference Center mu gisagara ca Bujumbura aho bariko barigira hamwe n’abayoboye ibinyamakuru n’amaradiyo ivyokorwa kugira iyo migwi ishingwe.
+
+Uti none iyo migwi y’abenegihugu yoba imeze gute?
+
+Jacques Bukuru ati : « Iyo migwi ni iyiri mu mitumba, hariya mu rutoki. Abari muri yo ni abantu basangiye ingorane. Ni ba nyarucari badakunda kuronka amakuru abubaka. » kutaronka amakuru na vyo ngo biterwa nuko usanga abamenyeshamakuru bibereye i Bujumbura, abagerageje kwegera abenegihugu nabo  ugasanga bashika ku migwa mikuru y’intara gusa. Ubwo bushikiranganji rero busaba abamenyesahamakuru gushika hariya mu rutoki, bakumviriza ingorane abenigihugu bafise, akaba arizo bakorerako ibiganiro, bandikako inkuru hanyuma bakaboneraho n’akaryo ko kurondera abahinga bababwira ivyotuma abo benegihugu bava mu ngorane barimwo.
+
+Bukuru anamenyesha ko hari abo mu maradiyo y’abenegihugu (radios communautaires) bamaze kubikora. Aho  usanga barashizeho imigwi ibumviriza canke ugasanga iyo migwi yaranishizeho bivanye n’ibiganiro vyubaka ayo maradiyo abashikiriza. Eka mbere ngo kubera ibiganiro bimwebimwe abo benegihugu bumvirije hari abariko baritunganiriza imirimo ya minsi yose, bakaja mu vyo kuziganya no kuguranana, mu vyo kurima kijambere, bakitunganiriza vyose kubera amakuru barose.
+
+Nijembazi Esperance umuhinga yashikirije icigwa c’ingene bo basanzwe babikora mu kigo CIEP (Centre d’Information, d’Education et de communication en matière de Population et de développement), avuga ko iyo migwi idafise uruhara rwo kwumviriza no guhanahana ivyiyumviro gusa, ahubwo irafise n’uburenganzira bwo kwigishanya hagati yayo igatorera umuti ibibazo bahura mu kibano biciye mu vyo bumviriza. Eka mbere ngo barashobora no gutanga amakuru y’aho baherereye
+
+Iyo migwi rero ngo yoba ihurikiyemwo bose, abagabo, abagore, urwaruka hamwe n’abagendana ubumuga aho bibonekeza kugira ntihagire uwubona ko akumiriwe mu biganiro basaba ko botunganirizwa. Ariko kandi ngo boba abantu bazi gusoma n’ukwandika kandi bafise ubwira bwo gukurikirana iradiyo, gusoma ivyandikwa n’ibinyamakuru no gusangiza abandi ivyiyumviro kandi bashobora kwerekana muri raporo batanga ibiganiro bo bakeneye

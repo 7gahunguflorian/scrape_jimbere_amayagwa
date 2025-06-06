@@ -1,0 +1,15 @@
+# Burundi : ni giki cokorwa kugira ikiyaga Tanganyika gihurumbirwe ?
+
+Inkengera z’ikiyaga Tanganyika ntizikingiwe. Umuntu uwo ari we wese ahakorera ivyo ashatse kandi mu kajagari. Nta rutonde ruhari. Ivyo rero bituma ikiyaga Tanganyika kidahurumbirwa cane ku buryo cokwega ingenzi ngo igihugu n’abakibamwo bavyungukireko. Ku bw’ivyo, haratunganijwe igitabu mu bushikiranganji mu vyo bujejwe harimwo ibidukikije cerekana ivyokorerwa ku nkengera z’ico kiyaga ku buhinga bwotuma hahurumbirwa.
+
+Ku ruhande rw’Uburundi, ico gitabu cerekana ibibanza bikenewe kwubakwamwo inyubako. Aha twovuga  amahoteri, inzu z’uburiro, ibibanza bikingirwa kugira ngo amafi aronke ahantu ata amagi,  ivyo kwidagaduriramwo, aho gukorera uburimyi, uburagiro bw’ibikoko vyo mu mazi nk’imvubu, ahazokorerwa uburovyi, ibivuko,  n’ibindi bikorwa bitanga ishusho nziza y’igihugu.Bikazokorwa kimwe kimwe cose mu kibanza caco bitari mu kajagari nk’uko vyavuzwe n’Umushikiranganji mu vyo ajejwe harimwo ibidukikije Déo Guide Rurema, kuri uwu wa 18 Myandagaro 2022, mu kiganiro yagize co gushira ahabona ibiri muri ico gitabu gishasha.
+
+Uyo mushikiranganji amenyesha ko amatongo yose ari ku nkengera ata muntu n’umwe arekuriwe  kuyagura canke kuyagurisha kuko ari aya Reta. Ahubwo ko umuntu wese afise impano zo gushira mu ngiro umugambi uwo ari wo wose mu yitegekanijwe kurangurirwa kuri iyo nkengera, abisavye muri Reta hagakorwa ivyigwa bagasanga koko arabishoboye bazoca bamurosa itongo kugira ngo aharangurire imigambi ijanye n’aho azoba yahisemwo gukorera.
+
+Uwo mugambi ushobora gutwara amadorari y’abanyamerika arenga imiriyaridi 2
+
+Félicien Nyorobeka, umuyobozi mukuru ajejwe ibidukikije, kubungabunga amazi, isuku n’isukura mu Burundi amenyesha ko intumbero ya Reta iri muri ico gitabu giheruka gutunganywa cerekana neza ko iyo migambi izorangurirwa mu gice kiri mu ma metero y’ubwaguke 150 uvuye ku mazi ya Tanganyika, kuva ku rubibe Uburundi buhana na Kongo gushika ku rubibe Uburundi buhana na Tanzaniya.
+
+Agira ati : «  Ico gice cose kizotunganywa ku buhinga bukwega ingenzi gifise uburinganire burenga amahegitari 3500. Ubwo na bwo bukazoba bugabuye ku buryo bwerekana hamwe hose ibizohakorerwa. Uburyo buzokora iyo migambi buzova mu ngabire, imfashanyo, ingurane, amafaranga ya Reta hamwe n’abanyamitahe bazohakorera. Imitahe ishobora kuja muri iyo migambi ikaba ishobora kurenga imiriyaridi 2 z’amadorari y’abanyamerika. » Yongera kandi ati : « Reta iranafise mu myitwarariko yayo umugambi wo gukingira imitumba n’inzuzi bihanamiye ikiyaga Tanganyika kugira amazi ya y’ico kiyaga azobe meza gusumba.»
+
+Mwomenya rero ko ikiyaga Tanganyika kirimwo ubwoko bw’ibinyabuzima burenga 1500. Muri bwo, ubushika 600 nta handi hantu na hamwe kw’isi nzima buri. Abarovyi bo muri ico kiyaga boba bangana na 95000, kandi abantu barenga umuriyoni ku nkengera z’ico kiyaga babeshejweho n’isamake zikivamwo. Iyo akaba ari imvo zumvikana zo gutuma ico kiyaga gikingirwa bikwiye. Bivugwa n’uwurongoye ishirahamwe « Enabel » mu Burundi mu migambi rirangura harimwo n’ugukingira amazi y’ikiyaga Tanganyika.

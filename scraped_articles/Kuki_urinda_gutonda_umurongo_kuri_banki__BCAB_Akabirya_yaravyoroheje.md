@@ -1,0 +1,25 @@
+# Kuki urinda gutonda umurongo kuri banki? BCAB-Akabirya yaravyoroheje…
+
+Ibanki BCAB yunze ubumwe n’ishirahamwe Lumicash kuri uwu wa 23 Ntwarante 2022 mu ntumbero yo kworohereza abanywanyi b’ayo mashirahamwe yompi. Kuva ubu umunywanyi w’ibanki BCAB aciye kuri *424# arashobora kubikura, kugura ama inite ya terefone, kurungikira umuntu amafaranga, kuriha fagitire, amahera y’ishure, kuriha umudandaza, gusaba agatabu ka sheke, kuraba ubutunzi afise kw’ikonti akoresheje iterefone iyo ari yo yose, ku mwanya uwo ari wo wose, n’aho ari hose…
+
+Iyo ufashe urugendo vyahora bisaba ko ugenda usinye amasheke, canke ugasiga uruhusha rw’abazogutorera amafaranga kuri konte yawe (procuration), ivyo na vyo bikaba vyashobora gushika ugasanga harabaye ubusuma. Ubu rero, na BCAB-Akabirya ubuzima buroroshe. Umuyobozi mukuru muri BCAB, Willy Thierry Nikuze ati: « Niwaba wibereye mu rugendo hanze y’igihugu, nta kizokubuza yuko ubandanya utunganya n’ivyasigaye mu gihugu. Wewe nyene aho uri, uzovyikorera utore amahera yawe ufise muri BCAB, uyarungikire uwo ushaka ukoresheje agaterefone kawe gusa. Bizosaba gusa yuko aho hantu uri, uba ufise “internet na aplication mobile” izogufasha muri ako kabirya. »
+
+Ndetse uyo muyobozi avuga ko mu minsi iri imbere, ni babemerera mu bushikiranganji, n’abarimyi bipfuza kuriha umwavu nabo nyene bazoshobora guca k’urya mu kozi wa Lumicash, gutyo batange amahera, kandi azoba ashitse kuri konti. Bizoba vyanditswe, umwavu waguze ingene ungana n’amahera watanze n’ayo uzoba wasigaje kuriha kugira ngo uheze kwishura ca kiringo baba babahaye. Ubwo buhinga bwa BCAB–Akabirya, buzokora amasaha 24/24.
+
+Jean Bosco Niyongabo umuyobozi araba ivy’ubuhinga muri BCAB, avuga ko ivyo vyose babigize mu ntumbero yo gusanga abenegihugu ku kivi, ntibate umwanya wabo bobaye bariko barakoramwo ibikorwa vyo kwiyungunganya. Mbere anavuga ko n’umukozi wa Reta ari muri BCAB, umushahara uzokira kujako aca aronka akamesaje kamumenyesha ko amahera yashitse. Ntazirirwa arata umwanya ava mw’ishure aja gutondera amahera kuri banki, azotaha ayahitana mu nzira ku mukozi wa Lumicash, abandanya yitahira kwikenura. Uburyo uyikoresha, ufyonda kuri *424# uca uronka urutonde rw’ibisanzwe bitegekanije muri BCAB_AKABIRYA, maze ugahitamwo ico ushaka gukora.
+
+Ushobora kubikura canke kurungikira umuntu amahera angana gute?
+
+Ishemezwe Ange Melissa, umuyobozi ajejwe ubudandaji muri Lumicash avuga ko ushobora kubikura canke kurungika amahera incuro 5 uciye kuri Lumicash.  Hanyuma amahera ushobora gukurako canke kurungika ku ncuro imwe imwe, ntaba arenga umuriyoni umwe. Ni ukuvuga umunywanyi arungitse amahera arungika umuriyoni umwe, ariko agashobora kubikora incuro 5 ku munsi. Ni ukuvuga rero ko ku munsi umuntu arashobora kuronka imiriyoni 5.
+
+Willy Thierry Nikuze umuyobozi mukuru mw’ibanki y’abarimyi BCAB, avuga ati: « Twebwe ku bantu dusanzwe tuzi yuko bashobora gukenera amahera menshi, turashobora kubugururira bakarenza izo ncuro 5 zisabwa muri lumicash, bagatora amahera baba bakeneye yose, iyo babidusavye. » Ivyo rero ngo babikora mu ntumbero yo kworohereza abanywanyi b’iyo banki.
+
+Ariko n’ubwo biri uko, uyo muyobozi anamenyesha ko, iyo umuntu ariko arakura amahera yiwe ari muri BCAB, ayarungika kw’ikonti y’uwundi munywanyi mw’ibanki iyo ari yo yose mu Burundi biciye mu buhinga bwa BCAB-Akabirya, arashobora kurungika amahera ashika ku miriyoni 10. Ivyo akabigira incuro ashaka bivanye n’amahera ashaka kurungika.
+
+None ubwo ayo mahera aba ari mu mutekano?
+
+Prudence Nzimana, umuyobozi araba ibijanye n’igisata c’abanywanyi muri lumicash avuga ko ata mahera yo muri lumicash ashobora kuzimira ngo babure iyo ari. Kuko, ngo inomero yose iba ifise konte yayo. Kandi umuntu aba afise igiharuro kabanga (code PIN) yisangije. Agira ati: «Twebwe iyo dutanze ico giharuro kabanga, turasaba umunywanyi kugihindura agakoresha ico ashobora kwibuka kandi abantu badashobora gutora vyoroshe. Naho ikarata simu yotakara, umunywanyi yuguruje iyindi, hanyuma agasubizamwo igiharuro kabanga ciwe, ivyiwe vyose abisangamwo. »
+
+Umuyobozi ajejwe ivy’ubuhinga muri BCAB, Jean Bosco Niyongabo amenyesha ko BCAB- Akabirya, umutekano ari wose kuko no ku ruhande rwa banki hari igiharuro kabanga baha umunywanyi. Ahubwo agirako amenyesha ko n’ibikorwa vya BCAB-Akabirya vyatanguye mbere no kwandika biriko birakorwa ku bashaka gukoresha uwo muhora. Bisaba kuba uri umunywanyi w’ibanki BCAB. Abantu baba mu makomine yo hagati mu gihugu, nabo ngo bizokunda ko umuntu yugurura konti atiriwe arashika kuri banki ya BCAB. Ati: «Tuzokwiragiza aba “agents” bacu ku mitumba yose ya rusasuma kugira dufashe abantu bose bipfuza gutunga konti muri banki y’abarimyi. »
+
+Willy Thierry Nikuze ati: « BCAB-Akabirya izodufasha kugira abanyagihugu bacu bari ku mitumba bameze nk’abugaranywe bashobore kuronka aho batora amahera hafi. Ivyo bizonatuma bamenya uburyo babika amahera yabo, bayakure mu mahembe, bayazane muri banki kuko amahera abitse muri banki ni yo agaruka agateza imbere igihugu. Rero twebwe twiteze yuko abanyagihugu bose iyo bava bakagera biga kubika no gukorana n’amabanki kugira babandanye gutera imbere bashigikiwe n’amabanki. »
