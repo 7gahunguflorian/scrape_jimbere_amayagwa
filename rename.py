@@ -13,6 +13,6 @@ for filename in os.listdir(folder):
         new_filename = prefix + filename
         new_path = os.path.join(folder, new_filename)
         os.rename(old_path, new_path)
-        print(f"✅ Renommé : {filename} → {new_filename}")
+        print(f"Renommé : {filename} → {new_filename}")
 
 print("Tous les fichiers ont été renommés avec succès.")
